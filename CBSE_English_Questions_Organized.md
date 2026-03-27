@@ -1,0 +1,2250 @@
+# CBSE English Class 10 – Previous Year Questions (2022–2025)
+
+Questions extracted from official CBSE question papers and organised by chapter and year.
+
+---
+
+## Reading Comprehension
+
+### Year: 2022
+
+**Q1** *(Set 1, Comprehension)*
+
+1. Read the passage given below : Sifting through the sands of time 1 ntains, skeletons of marine animals, even tiny diamonds. Sand provides a mineral treasure- -changing processes. 2 Sand : as children we play on it and as adults we relax on it. It is something we complain about when it gets in our food, and praise we would discover an account of a geological past and a history of marine life that goes back thousands and, in some cases, millions of years. 3 Sand covers not just sea-shores, but also ocean beds, deserts and mountains. It is one of the most common substances on Earth. And it is a major element in man-made items too concrete is largely sand, while glass is made of little else. 4 What exactly is sand ? Well, it is larger than fine dust and smaller than shingle. Depending on its age and origin, a particular sand can consist of tiny pebbles or porous granules. Its grain may have the shape of stars or spirals, their edges jagged or smooth. They have come from the erosion of r
+
+---
+
+**Q2** *(Set 1, Comprehension)*
+
+2. Read the passage given below : Extraction And Purification Of Drinking Water 1 Some consumers choose to purchase bottled drinking water, rather than relying on city tap water supplies. Bottled water has typically been extracted from underground sources. If water exists underground, but has no natural exit points, bottling companies may construct a water table well by drilling down to extract water from an unconfined aquifer. This is done when the known as a water table In some cases, as with a valley or gully on a mountain, the level of the spring can emerge. Bottling companies are permitted to extract this water from a hole drilled into the underground spring, but the composition of the water must be identical to that of the naturally surfacing variety nearby. 2 Artesian water is drawn from a confined aquifer, a deep underground cavity of porous rock that holds water and bears pressure from a confining layer above it. This water can be accessed if companies drill a vertical channel
+
+---
+
+**Q1** *(Set 1, MCQ)*
+
+1. Read the following passage carefully : 10 (1) Saffron is a spice that’s long been revered across the globe, captivating hearts and palates with its deep-red hue and complex flavour. It is one of the most prized spices that you can find on this planet. Just like gold is among the most valuable metals in the world, saffron means the same in the world of spices. Also known as ‘kesar’ in Hindi, it has a rich history and is often called an ancient spice. Saffron is being used since ages in various foods made for the royals and the elite as it contains medicinal properties. (2) Originating from the delicate stigma of the saffron crocus flower, it transforms the ordinary into the extraordinary, infusing dishes with a subtle, earthy sweetness that adds a special taste to the palate. Saffron has a strong exotic aroma and a unique flavour and is used to colour and flavour many Mediterranean and Asian dishes, particularly rice, fish and English, Scandinavian, and Balkan breads. (3) Saffron for
+
+---
+
+**Q2** *(Set 1, MCQ)*
+
+2. Read the following passage carefully : 10 (1) Silk is a natural protein fibre, some forms of which can be woven into textiles. Silk has a long history in India. It is known as Resham in eastern and northern India, and Pattu in the southern parts of India. India is the second largest producer of silk in the world after China. (2) Silk is renowned for its luxurious qualities with a natural soft and smooth texture that feels comfortable on the skin. One of its unique qualities is to absorb and release moisture, regulating the body temperature, and keeping the wearer cool and dry. (3) Silk is one of the strongest natural fibres, but it loses up to 20% of its strength when wet. Its elasticity is moderate to poor: if elongated even a small amount, it remains stretched. It can be weakened if exposed to too much sunlight. It may also be attacked by insects, especially if left dirty. (4) The process of silk production is known as sericulture. Silk is produced by several insects; but, general
+
+---
+
+**Q1** *(Set 2, Comprehension)*
+
+1. Read the passage given below : Sifting through the sands of time 1 ntains, skeletons of marine animals, even tiny diamonds. Sand provides a mineral treasure- -changing processes. 2 Sand : as children we play on it and as adults we relax on it. It is something we complain about when it gets in our food, and praise we would discover an account of a geological past and a history of marine life that goes back thousands and, in some cases, millions of years. 3 Sand covers not just sea-shores, but also ocean beds, deserts and mountains. It is one of the most common substances on Earth. And it is a major element in man-made items too concrete is largely sand, while glass is made of little else. 4 What exactly is sand ? Well, it is larger than fine dust and smaller than shingle. Depending on its age and origin, a particular sand can consist of tiny pebbles or porous granules. Its grain may have the shape of stars or spirals, their edges jagged or smooth. They have come from the erosion of r
+
+---
+
+**Q2** *(Set 2, Comprehension)*
+
+2. Read the passage given below : Extraction And Purification Of Drinking Water 1 Some consumers choose to purchase bottled drinking water, rather than relying on city tap water supplies. Bottled water has typically been extracted from underground sources. If water exists underground, but has no natural exit points, bottling companies may construct a water table well by drilling down to extract water from an unconfined aquifer. This is done when the known as a water table In some cases, as with a valley or gully on a mountain, the level of the spring can emerge. Bottling companies are permitted to extract this water from a hole drilled into the underground spring, but the composition of the water must be identical to that of the naturally surfacing variety nearby. 2 Artesian water is drawn from a confined aquifer, a deep underground cavity of porous rock that holds water and bears pressure from a confining layer above it. This water can be accessed if companies drill a vertical channel
+
+---
+
+**Q1** *(Set 2, MCQ)*
+
+1. Read the following passage carefully : 10 (1) Saffron is a spice that’s long been revered across the globe, captivating hearts and palates with its deep-red hue and complex flavour. It is one of the most prized spices that you can find on this planet. Just like gold is among the most valuable metals in the world, saffron means the same in the world of spices. Also known as ‘kesar’ in Hindi, it has a rich history and is often called an ancient spice. Saffron is being used since ages in various foods made for the royals and the elite as it contains medicinal properties. (2) Originating from the delicate stigma of the saffron crocus flower, it transforms the ordinary into the extraordinary, infusing dishes with a subtle, earthy sweetness that adds a special taste to the palate. Saffron has a strong exotic aroma and a unique flavour and is used to colour and flavour many Mediterranean and Asian dishes, particularly rice, fish and English, Scandinavian, and Balkan breads. (3) Saffron for
+
+---
+
+**Q2** *(Set 2, MCQ)*
+
+2. Read the following passage carefully : 10 (1) Silk is a natural protein fibre, some forms of which can be woven into textiles. Silk has a long history in India. It is known as Resham in eastern and northern India, and Pattu in the southern parts of India. India is the second largest producer of silk in the world after China. (2) Silk is renowned for its luxurious qualities with a natural soft and smooth texture that feels comfortable on the skin. One of its unique qualities is to absorb and release moisture, regulating the body temperature, and keeping the wearer cool and dry. (3) Silk is one of the strongest natural fibres, but it loses up to 20% of its strength when wet. Its elasticity is moderate to poor: if elongated even a small amount, it remains stretched. It can be weakened if exposed to too much sunlight. It may also be attacked by insects, especially if left dirty. (4) The process of silk production is known as sericulture. Silk is produced by several insects; but, general
+
+---
+
+**Q1** *(Set 3, Comprehension)*
+
+1. Read the passage given below : Sifting through the sands of time 1 ntains, skeletons of marine animals, even tiny diamonds. Sand provides a mineral treasure- -changing processes. 2 Sand : as children we play on it and as adults we relax on it. It is something we complain about when it gets in our food, and praise we would discover an account of a geological past and a history of marine life that goes back thousands and, in some cases, millions of years. 3 Sand covers not just sea-shores, but also ocean beds, deserts and mountains. It is one of the most common substances on Earth. And it is a major element in man-made items too concrete is largely sand, while glass is made of little else. 4 What exactly is sand ? Well, it is larger than fine dust and smaller than shingle. Depending on its age and origin, a particular sand can consist of tiny pebbles or porous granules. Its grain may have the shape of stars or spirals, their edges jagged or smooth. They have come from the erosion of r
+
+---
+
+**Q2** *(Set 3, Comprehension)*
+
+2. Read the passage given below : Extraction And Purification Of Drinking Water 1 Some consumers choose to purchase bottled drinking water, rather than relying on city tap water supplies. Bottled water has typically been extracted from underground sources. If water exists underground, but has no natural exit points, bottling companies may construct a water table well by drilling down to extract water from an unconfined aquifer. This is done when the known as a water table In some cases, as with a valley or gully on a mountain, the level of the spring can emerge. Bottling companies are permitted to extract this water from a hole drilled into the underground spring, but the composition of the water must be identical to that of the naturally surfacing variety nearby. 2 Artesian water is drawn from a confined aquifer, a deep underground cavity of porous rock that holds water and bears pressure from a confining layer above it. This water can be accessed if companies drill a vertical channel
+
+---
+
+**Q1** *(Set 3, MCQ)*
+
+1. Read the following passage carefully : 10 (1) Saffron is a spice that’s long been revered across the globe, captivating hearts and palates with its deep-red hue and complex flavour. It is one of the most prized spices that you can find on this planet. Just like gold is among the most valuable metals in the world, saffron means the same in the world of spices. Also known as ‘kesar’ in Hindi, it has a rich history and is often called an ancient spice. Saffron is being used since ages in various foods made for the royals and the elite as it contains medicinal properties. (2) Originating from the delicate stigma of the saffron crocus flower, it transforms the ordinary into the extraordinary, infusing dishes with a subtle, earthy sweetness that adds a special taste to the palate. Saffron has a strong exotic aroma and a unique flavour and is used to colour and flavour many Mediterranean and Asian dishes, particularly rice, fish and English, Scandinavian, and Balkan breads. (3) Saffron for
+
+---
+
+**Q2** *(Set 3, MCQ)*
+
+2. Read the following passage carefully : 10 (1) Silk is a natural protein fibre, some forms of which can be woven into textiles. Silk has a long history in India. It is known as Resham in eastern and northern India, and Pattu in the southern parts of India. India is the second largest producer of silk in the world after China. (2) Silk is renowned for its luxurious qualities with a natural soft and smooth texture that feels comfortable on the skin. One of its unique qualities is to absorb and release moisture, regulating the body temperature, and keeping the wearer cool and dry. (3) Silk is one of the strongest natural fibres, but it loses up to 20% of its strength when wet. Its elasticity is moderate to poor: if elongated even a small amount, it remains stretched. It can be weakened if exposed to too much sunlight. It may also be attacked by insects, especially if left dirty. (4) The process of silk production is known as sericulture. Silk is produced by several insects; but, general
+
+---
+
+**Q1** *(Set 1, General)*
+
+1. Read the following passage carefully : 10 (1) Cinnamon is a spice obtained from the inner bark of several tree species from the genus Cinnamomum. Cinnamon is made by cutting the stems of cinnamon trees. The inner bark is then extracted and the woody parts removed. When it dries, it forms strips that curl into rolls, called cinnamon sticks. These sticks can be ground to form cinnamon powder. The spice, consisting of the dried inner bark, is brown in colour and has a delicately fragrant aroma and a warm sweet flavour. The distinct aroma and flavour of cinnamon derive from its essential oil and principal component, cinnamaldehyde, as well as numerous other constituents including eugenol. (2) There are two main types of cinnamon: Cassia and Ceylon. The two have different nutritional profiles. Ceylon cinnamon comes from Sri Lanka. Some people call it “true cinnamon.” Cassia cinnamon, on the other hand, originates from southern China. Cassia is cheaper than Ceylon cinnamon. Cassia cinnamo
+
+---
+
+**Q1** *(Set 1, General)*
+
+1. proven
+
+---
+
+**Q2** *(Set 1, General)*
+
+2. scientific
+
+---
+
+**Q3** *(Set 1, General)*
+
+3. uncertain
+
+---
+
+**Q4** *(Set 1, General)*
+
+4. controversial
+
+---
+
+**Q5** *(Set 1, MCQ)*
+
+5. harmful Select the correct option : (A) 1 and 3 (B) 2 and 4 (C) only 3 (D) only 5 (vii) Which of the following statements about cinnamon and its health benefits is true ? 1 (A) Modern science has evidence to prove that cinnamon has many anti-diabetic properties, and it offers complete protection from cancer and cardiovascular disease. (B) Cinnamon lacks antimicrobial and antifungal properties, making it unsuitable for dental hygiene products. (C) Antioxidants found in cinnamon have no effect on free radicals in the body. (D) Cinnamon’s anti-inflammatory properties are being researched for its potential benefits in Alzheimer’s disease, irritable bowel syndrome and colon cancer. Paragraph (6) (viii) Which of the following statements best describes the author’s attitude toward cinnamon and its uses ? 1 (A) Finds cinnamon to be a prized condiment which can be used in almost all food items. (B) Believes that cinnamon should be used by everyone, everyday. (C) Recognizes that cinnamon has 
+
+---
+
+**Q2** *(Set 1, MCQ)*
+
+2. Read the following passage carefully : 10 (1) When planning vacations, Indians typically prioritize domestic destinations, as shown by Ministry of Tourism data indicating 1.7 billion domestic tourist visits within India compared to 21 million international departures in 2022. Uttar Pradesh, Rajasthan, Tamil Nadu, Andhra Pradesh, and Karnataka stand out as the top states for domestic tourism. Reasons for domestic tourism are many, some travel because it suits their budget while others love to explore the historical, cultural diversity. The government today is focussing on tourist-friendly infrastructure which is making travel more convenient for the domestic traveller. (2) In terms of outbound tourism, a significant proportion of Indian travellers, totalling 5.9 million, visited the United Arab Emirates in 2022, comprising 28 percent of total outbound tourist travel. Other Gulf states such as Saudi Arabia, Qatar, and Kuwait also rank among the top destinations, with 2.4 million, 880,
+
+---
+
+**Q1** *(Set 2, General)*
+
+1. Read the following passage carefully : 10 (1) Cinnamon is a spice obtained from the inner bark of several tree species from the genus Cinnamomum. Cinnamon is made by cutting the stems of cinnamon trees. The inner bark is then extracted and the woody parts removed. When it dries, it forms strips that curl into rolls, called cinnamon sticks. These sticks can be ground to form cinnamon powder. The spice, consisting of the dried inner bark, is brown in colour and has a delicately fragrant aroma and a warm sweet flavour. The distinct aroma and flavour of cinnamon derive from its essential oil and principal component, cinnamaldehyde, as well as numerous other constituents including eugenol. (2) There are two main types of cinnamon: Cassia and Ceylon. The two have different nutritional profiles. Ceylon cinnamon comes from Sri Lanka. Some people call it “true cinnamon.” Cassia cinnamon, on the other hand, originates from southern China. Cassia is cheaper than Ceylon cinnamon. Cassia cinnamo
+
+---
+
+**Q1** *(Set 2, General)*
+
+1. proven
+
+---
+
+**Q2** *(Set 2, General)*
+
+2. scientific
+
+---
+
+**Q3** *(Set 2, General)*
+
+3. uncertain
+
+---
+
+**Q4** *(Set 2, General)*
+
+4. controversial
+
+---
+
+**Q5** *(Set 2, MCQ)*
+
+5. harmful Select the correct option : (A) 1 and 3 (B) 2 and 4 (C) only 3 (D) only 5 (vii) Which of the following statements about cinnamon and its health benefits is true ? 1 (A) Modern science has evidence to prove that cinnamon has many anti-diabetic properties, and it offers complete protection from cancer and cardiovascular disease. (B) Cinnamon lacks antimicrobial and antifungal properties, making it unsuitable for dental hygiene products. (C) Antioxidants found in cinnamon have no effect on free radicals in the body. (D) Cinnamon’s anti-inflammatory properties are being researched for its potential benefits in Alzheimer’s disease, irritable bowel syndrome and colon cancer. Paragraph (6) (viii) Which of the following statements best describes the author’s attitude toward cinnamon and its uses ? 1 (A) Finds cinnamon to be a prized condiment which can be used in almost all food items. (B) Believes that cinnamon should be used by everyone, everyday. (C) Recognizes that cinnamon has 
+
+---
+
+**Q2** *(Set 2, MCQ)*
+
+2. Read the following passage carefully : 10 (1) When planning vacations, Indians typically prioritize domestic destinations, as shown by Ministry of Tourism data indicating 1.7 billion domestic tourist visits within India compared to 21 million international departures in 2022. Uttar Pradesh, Rajasthan, Tamil Nadu, Andhra Pradesh, and Karnataka stand out as the top states for domestic tourism. Reasons for domestic tourism are many, some travel because it suits their budget while others love to explore the historical, cultural diversity. The government today is focussing on tourist-friendly infrastructure which is making travel more convenient for the domestic traveller. (2) In terms of outbound tourism, a significant proportion of Indian travellers, totalling 5.9 million, visited the United Arab Emirates in 2022, comprising 28 percent of total outbound tourist travel. Other Gulf states such as Saudi Arabia, Qatar, and Kuwait also rank among the top destinations, with 2.4 million, 880,
+
+---
+
+**Q1** *(Set 3, General)*
+
+1. Read the following passage carefully : 10 (1) Cinnamon is a spice obtained from the inner bark of several tree species from the genus Cinnamomum. Cinnamon is made by cutting the stems of cinnamon trees. The inner bark is then extracted and the woody parts removed. When it dries, it forms strips that curl into rolls, called cinnamon sticks. These sticks can be ground to form cinnamon powder. The spice, consisting of the dried inner bark, is brown in colour and has a delicately fragrant aroma and a warm sweet flavour. The distinct aroma and flavour of cinnamon derive from its essential oil and principal component, cinnamaldehyde, as well as numerous other constituents including eugenol. (2) There are two main types of cinnamon: Cassia and Ceylon. The two have different nutritional profiles. Ceylon cinnamon comes from Sri Lanka. Some people call it “true cinnamon.” Cassia cinnamon, on the other hand, originates from southern China. Cassia is cheaper than Ceylon cinnamon. Cassia cinnamo
+
+---
+
+**Q1** *(Set 3, General)*
+
+1. proven
+
+---
+
+**Q2** *(Set 3, General)*
+
+2. scientific
+
+---
+
+**Q3** *(Set 3, General)*
+
+3. uncertain
+
+---
+
+**Q4** *(Set 3, General)*
+
+4. controversial
+
+---
+
+**Q5** *(Set 3, MCQ)*
+
+5. harmful Select the correct option : (A) 1 and 3 (B) 2 and 4 (C) only 3 (D) only 5 (vii) Which of the following statements about cinnamon and its health benefits is true ? 1 (A) Modern science has evidence to prove that cinnamon has many anti-diabetic properties, and it offers complete protection from cancer and cardiovascular disease. (B) Cinnamon lacks antimicrobial and antifungal properties, making it unsuitable for dental hygiene products. (C) Antioxidants found in cinnamon have no effect on free radicals in the body. (D) Cinnamon’s anti-inflammatory properties are being researched for its potential benefits in Alzheimer’s disease, irritable bowel syndrome and colon cancer. Paragraph (6) (viii) Which of the following statements best describes the author’s attitude toward cinnamon and its uses ? 1 (A) Finds cinnamon to be a prized condiment which can be used in almost all food items. (B) Believes that cinnamon should be used by everyone, everyday. (C) Recognizes that cinnamon has 
+
+---
+
+**Q2** *(Set 3, MCQ)*
+
+2. Read the following passage carefully : 10 (1) When planning vacations, Indians typically prioritize domestic destinations, as shown by Ministry of Tourism data indicating 1.7 billion domestic tourist visits within India compared to 21 million international departures in 2022. Uttar Pradesh, Rajasthan, Tamil Nadu, Andhra Pradesh, and Karnataka stand out as the top states for domestic tourism. Reasons for domestic tourism are many, some travel because it suits their budget while others love to explore the historical, cultural diversity. The government today is focussing on tourist-friendly infrastructure which is making travel more convenient for the domestic traveller. (2) In terms of outbound tourism, a significant proportion of Indian travellers, totalling 5.9 million, visited the United Arab Emirates in 2022, comprising 28 percent of total outbound tourist travel. Other Gulf states such as Saudi Arabia, Qatar, and Kuwait also rank among the top destinations, with 2.4 million, 880,
+
+---
+
+### Year: 2023
+
+**Q1** *(Set 1, Comprehension)*
+
+1. Read the passage given below : Sifting through the sands of time 1 untains, skeletons of marine animals, even tiny diamonds. Sand provides a mineral treasure- -changing processes. 2 Sand : as children we play on it and as adults we relax on it. It is something we complain about when it gets in our food, and praise we would discover an account of a geological past and a history of marine life that goes back thousands and, in some cases, millions of years. 3 Sand covers not just sea-shores, but also ocean beds, deserts and mountains. It is one of the most common substances on Earth. And it is a major element in man-made items too concrete is largely sand, while glass is made of little else. 4 What exactly is sand ? Well, it is larger than fine dust and smaller than shingle. Depending on its age and origin, a particular sand can consist of tiny pebbles or porous granules. Its grain may have the shape of stars or spirals, their edges jagged or smooth. They have come from the erosion of 
+
+---
+
+**Q2** *(Set 1, Comprehension)*
+
+2. Read the passage given below : Extraction And Purification Of Drinking Water 1 Some consumers choose to purchase bottled drinking water, rather than relying on city tap water supplies. Bottled water has typically been extracted from underground sources. If water exists underground, but has no natural exit points, bottling companies may construct a water table well by drilling down to extract water from an unconfined aquifer. This is done when th known as a water table In some cases, as with a valley or gully on a mountain, the level of the spring can emerge. Bottling companies are permitted to extract this water from a hole drilled into the underground spring, but the composition of the water must be identical to that of the naturally surfacing variety nearby. 2 Artesian water is drawn from a confined aquifer, a deep underground cavity of porous rock that holds water and bears pressure from a confining layer above it. This water can be accessed if companies drill a vertical channel 
+
+---
+
+**Q1** *(Set 1, MCQ)*
+
+1. Read the following passage carefully : 10 (1) With the growing focus on sustainable living, the importance of kitchen gardens in urban regions has garnered greater acknowledgement. One significance of kitchen gardens in urban areas is their role in promoting food security. Rapid urbanization has led to increased distances between food production centres and urban settlements, resulting in longer food supply chains and a decrease in the freshness and nutritional value of food. (2) By having a kitchen garden, urban dwellers can grow their own fresh produce at home, making good use of empty tins, old utensils, and clay flower pots, ensuring a constant supply of nutritious food for themselves and their families. This activity not only saves money and time but can also provide a healthy, practical, and environmentally friendly hobby for the whole family. (3) Not only do kitchen gardens contribute to food security, but they also play a crucial role in environmental sustainability. Traditi
+
+---
+
+**Q2** *(Set 1, MCQ)*
+
+2. Read the following passage carefully : 10 (1) Silk is a natural protein fibre, some forms of which can be woven into textiles. Silk has a long history in India. It is known as Resham in eastern and northern India, and Pattu in the southern parts of India. India is the second largest producer of silk in the world after China. (2) Silk is renowned for its luxurious qualities with a natural soft and smooth texture that feels comfortable on the skin. One of its unique qualities is to absorb and release moisture, regulating the body temperature, and keeping the wearer cool and dry. (3) Silk is one of the strongest natural fibres, but it loses up to 20% of its strength when wet. Its elasticity is moderate to poor: if elongated even a small amount, it remains stretched. It can be weakened if exposed to too much sunlight. It may also be attacked by insects, especially if left dirty. (4) The process of silk production is known as sericulture. Silk is produced by several insects; but, general
+
+---
+
+**Q1** *(Set 2, Comprehension)*
+
+1. Read the passage given below : Sifting through the sands of time 1 untains, skeletons of marine animals, even tiny diamonds. Sand provides a mineral treasure- -changing processes. 2 Sand : as children we play on it and as adults we relax on it. It is something we complain about when it gets in our food, and praise we would discover an account of a geological past and a history of marine life that goes back thousands and, in some cases, millions of years. 3 Sand covers not just sea-shores, but also ocean beds, deserts and mountains. It is one of the most common substances on Earth. And it is a major element in man-made items too concrete is largely sand, while glass is made of little else. 4 What exactly is sand ? Well, it is larger than fine dust and smaller than shingle. Depending on its age and origin, a particular sand can consist of tiny pebbles or porous granules. Its grain may have the shape of stars or spirals, their edges jagged or smooth. They have come from the erosion of 
+
+---
+
+**Q2** *(Set 2, Comprehension)*
+
+2. Read the passage given below : Extraction And Purification Of Drinking Water 1 Some consumers choose to purchase bottled drinking water, rather than relying on city tap water supplies. Bottled water has typically been extracted from underground sources. If water exists underground, but has no natural exit points, bottling companies may construct a water table well by drilling down to extract water from an unconfined aquifer. This is done when th known as a water table In some cases, as with a valley or gully on a mountain, the level of the spring can emerge. Bottling companies are permitted to extract this water from a hole drilled into the underground spring, but the composition of the water must be identical to that of the naturally surfacing variety nearby. 2 Artesian water is drawn from a confined aquifer, a deep underground cavity of porous rock that holds water and bears pressure from a confining layer above it. This water can be accessed if companies drill a vertical channel 
+
+---
+
+**Q1** *(Set 2, MCQ)*
+
+1. Read the following passage carefully : 10 (1) With the growing focus on sustainable living, the importance of kitchen gardens in urban regions has garnered greater acknowledgement. One significance of kitchen gardens in urban areas is their role in promoting food security. Rapid urbanization has led to increased distances between food production centres and urban settlements, resulting in longer food supply chains and a decrease in the freshness and nutritional value of food. (2) By having a kitchen garden, urban dwellers can grow their own fresh produce at home, making good use of empty tins, old utensils, and clay flower pots, ensuring a constant supply of nutritious food for themselves and their families. This activity not only saves money and time but can also provide a healthy, practical, and environmentally friendly hobby for the whole family. (3) Not only do kitchen gardens contribute to food security, but they also play a crucial role in environmental sustainability. Traditi
+
+---
+
+**Q2** *(Set 2, MCQ)*
+
+2. Read the following passage carefully : 10 (1) Silk is a natural protein fibre, some forms of which can be woven into textiles. Silk has a long history in India. It is known as Resham in eastern and northern India, and Pattu in the southern parts of India. India is the second largest producer of silk in the world after China. (2) Silk is renowned for its luxurious qualities with a natural soft and smooth texture that feels comfortable on the skin. One of its unique qualities is to absorb and release moisture, regulating the body temperature, and keeping the wearer cool and dry. (3) Silk is one of the strongest natural fibres, but it loses up to 20% of its strength when wet. Its elasticity is moderate to poor: if elongated even a small amount, it remains stretched. It can be weakened if exposed to too much sunlight. It may also be attacked by insects, especially if left dirty. (4) The process of silk production is known as sericulture. Silk is produced by several insects; but, general
+
+---
+
+**Q1** *(Set 3, Comprehension)*
+
+1. Read the passage given below : Sifting through the sands of time 1 untains, skeletons of marine animals, even tiny diamonds. Sand provides a mineral treasure- -changing processes. 2 Sand : as children we play on it and as adults we relax on it. It is something we complain about when it gets in our food, and praise we would discover an account of a geological past and a history of marine life that goes back thousands and, in some cases, millions of years. 3 Sand covers not just sea-shores, but also ocean beds, deserts and mountains. It is one of the most common substances on Earth. And it is a major element in man-made items too concrete is largely sand, while glass is made of little else. 4 What exactly is sand ? Well, it is larger than fine dust and smaller than shingle. Depending on its age and origin, a particular sand can consist of tiny pebbles or porous granules. Its grain may have the shape of stars or spirals, their edges jagged or smooth. They have come from the erosion of 
+
+---
+
+**Q2** *(Set 3, Comprehension)*
+
+2. Read the passage given below : Extraction And Purification Of Drinking Water 1 Some consumers choose to purchase bottled drinking water, rather than relying on city tap water supplies. Bottled water has typically been extracted from underground sources. If water exists underground, but has no natural exit points, bottling companies may construct a water table well by drilling down to extract water from an unconfined aquifer. This is done when th known as a water table In some cases, as with a valley or gully on a mountain, the level of the spring can emerge. Bottling companies are permitted to extract this water from a hole drilled into the underground spring, but the composition of the water must be identical to that of the naturally surfacing variety nearby. 2 Artesian water is drawn from a confined aquifer, a deep underground cavity of porous rock that holds water and bears pressure from a confining layer above it. This water can be accessed if companies drill a vertical channel 
+
+---
+
+**Q1** *(Set 3, MCQ)*
+
+1. Read the following passage carefully : 10 (1) With the growing focus on sustainable living, the importance of kitchen gardens in urban regions has garnered greater acknowledgement. One significance of kitchen gardens in urban areas is their role in promoting food security. Rapid urbanization has led to increased distances between food production centres and urban settlements, resulting in longer food supply chains and a decrease in the freshness and nutritional value of food. (2) By having a kitchen garden, urban dwellers can grow their own fresh produce at home, making good use of empty tins, old utensils, and clay flower pots, ensuring a constant supply of nutritious food for themselves and their families. This activity not only saves money and time but can also provide a healthy, practical, and environmentally friendly hobby for the whole family. (3) Not only do kitchen gardens contribute to food security, but they also play a crucial role in environmental sustainability. Traditi
+
+---
+
+**Q2** *(Set 3, MCQ)*
+
+2. Read the following passage carefully : 10 (1) Silk is a natural protein fibre, some forms of which can be woven into textiles. Silk has a long history in India. It is known as Resham in eastern and northern India, and Pattu in the southern parts of India. India is the second largest producer of silk in the world after China. (2) Silk is renowned for its luxurious qualities with a natural soft and smooth texture that feels comfortable on the skin. One of its unique qualities is to absorb and release moisture, regulating the body temperature, and keeping the wearer cool and dry. (3) Silk is one of the strongest natural fibres, but it loses up to 20% of its strength when wet. Its elasticity is moderate to poor: if elongated even a small amount, it remains stretched. It can be weakened if exposed to too much sunlight. It may also be attacked by insects, especially if left dirty. (4) The process of silk production is known as sericulture. Silk is produced by several insects; but, general
+
+---
+
+### Year: 2023 (Supplementary)
+
+**Q1** *(Set 1, MCQ)*
+
+1. Read the following passage carefully : 10 (1) On a Sunday full of possibilities, I’m confused by too many choices. I unlock my phone and innumerable choices pour : movies, music, podcasts, games, and this truly perplexes me. Amidst my indecision, a dust-ridden copy of ‘The Bell Jar’ falls from the bookshelf. My guilt finds respite in the puddle of addictive videos online. (2) In a hyperconnected world, books are left to age pale yellow. Reading is seen by the newer generations as mundane. Though the benefits of reading are common knowledge, the privilege of choice overpowers. Many publishers and bookstores have now shut down. (3) ‘The blast of the digital’ has made everything catering to shrinking attention spans, with overwhelming choices from online poetry to captions to tweets. The reading fabric of Gen Z is brief. They are reading rapidly and recklessly. Reading for sole bliss seems to be a thing of the past. Though digital reading might be a new avenue for words, studies sugges
+
+---
+
+**Q2** *(Set 1, MCQ)*
+
+2. Read the following passage carefully : 10 (1) Among the most visible effects of environmental global warming are rising seas around the world : since 1880, the global mean sea level (GMSL) has increased by 20 cm. There’s no easy way to halt or reverse this change. Earth’s oceans and ice sheets respond slowly to changes in the heat they receive from the atmosphere. They hold onto heat for decades to centuries. As a result, sea levels globally will continue to rise well beyond the 21st century. (2) The recent Intergovernmental Panel on Climate Change (IPCC) states that it is very likely that the climate-induced sea level will affect much of the world’s coasts in the coming decades. An estimated 800 million people will experience impacts of high tide flooding. In many coastal settings, even a small increase in baseline sea level can increase the frequency and magnitude of flooding during high tides, storm surges and extreme weather. (3) The direct impact of all this will be on communit
+
+---
+
+**Q1** *(Set 2, MCQ)*
+
+1. Read the following passage carefully : 10 (1) On a Sunday full of possibilities, I’m confused by too many choices. I unlock my phone and innumerable choices pour : movies, music, podcasts, games, and this truly perplexes me. Amidst my indecision, a dust-ridden copy of ‘The Bell Jar’ falls from the bookshelf. My guilt finds respite in the puddle of addictive videos online. (2) In a hyperconnected world, books are left to age pale yellow. Reading is seen by the newer generations as mundane. Though the benefits of reading are common knowledge, the privilege of choice overpowers. Many publishers and bookstores have now shut down. (3) ‘The blast of the digital’ has made everything catering to shrinking attention spans, with overwhelming choices from online poetry to captions to tweets. The reading fabric of Gen Z is brief. They are reading rapidly and recklessly. Reading for sole bliss seems to be a thing of the past. Though digital reading might be a new avenue for words, studies sugges
+
+---
+
+**Q2** *(Set 2, MCQ)*
+
+2. Read the following passage carefully : 10 (1) Among the most visible effects of environmental global warming are rising seas around the world : since 1880, the global mean sea level (GMSL) has increased by 20 cm. There’s no easy way to halt or reverse this change. Earth’s oceans and ice sheets respond slowly to changes in the heat they receive from the atmosphere. They hold onto heat for decades to centuries. As a result, sea levels globally will continue to rise well beyond the 21st century. (2) The recent Intergovernmental Panel on Climate Change (IPCC) states that it is very likely that the climate-induced sea level will affect much of the world’s coasts in the coming decades. An estimated 800 million people will experience impacts of high tide flooding. In many coastal settings, even a small increase in baseline sea level can increase the frequency and magnitude of flooding during high tides, storm surges and extreme weather. (3) The direct impact of all this will be on communit
+
+---
+
+**Q1** *(Set 3, MCQ)*
+
+1. Read the following passage carefully : 10 (1) On a Sunday full of possibilities, I’m confused by too many choices. I unlock my phone and innumerable choices pour : movies, music, podcasts, games, and this truly perplexes me. Amidst my indecision, a dust-ridden copy of ‘The Bell Jar’ falls from the bookshelf. My guilt finds respite in the puddle of addictive videos online. (2) In a hyperconnected world, books are left to age pale yellow. Reading is seen by the newer generations as mundane. Though the benefits of reading are common knowledge, the privilege of choice overpowers. Many publishers and bookstores have now shut down. (3) ‘The blast of the digital’ has made everything catering to shrinking attention spans, with overwhelming choices from online poetry to captions to tweets. The reading fabric of Gen Z is brief. They are reading rapidly and recklessly. Reading for sole bliss seems to be a thing of the past. Though digital reading might be a new avenue for words, studies sugges
+
+---
+
+**Q2** *(Set 3, MCQ)*
+
+2. Read the following passage carefully : 10 (1) Among the most visible effects of environmental global warming are rising seas around the world : since 1880, the global mean sea level (GMSL) has increased by 20 cm. There’s no easy way to halt or reverse this change. Earth’s oceans and ice sheets respond slowly to changes in the heat they receive from the atmosphere. They hold onto heat for decades to centuries. As a result, sea levels globally will continue to rise well beyond the 21st century. (2) The recent Intergovernmental Panel on Climate Change (IPCC) states that it is very likely that the climate-induced sea level will affect much of the world’s coasts in the coming decades. An estimated 800 million people will experience impacts of high tide flooding. In many coastal settings, even a small increase in baseline sea level can increase the frequency and magnitude of flooding during high tides, storm surges and extreme weather. (3) The direct impact of all this will be on communit
+
+---
+
+### Year: 2024
+
+**Q1** *(Set 1, MCQ)*
+
+1. Read the following passage carefully : 10 (1) Plastic pollution has become one of the most pressing environmental issues, as rapidly increasing production of disposable plastic products most visible in developing Asian and African nations, where garbage collection systems are often inefficient or nonexistent. But the developed world, especially in countries with low recycling rates, also has trouble properly collecting discarded plastics. Plastic trash has become so ubiquitous that it has prompted efforts to write a global treaty negotiated by the United Nations. (2) Plastics made from fossil fuels are just over a century old. Production and development of thousands of new plastic products accelerated after World War II. It transformed the modern age so much that life without plastics is unrecognizable today. Plastics revolutionized medicine with life-saving devices, made space travel possible, lightened cars and jets saving fuel and pollution and saved lives with helmets, incubator
+
+---
+
+**Q2** *(Set 1, MCQ)*
+
+2. Read the following passage carefully : 10 (1) Rotation of crops is a universal phenomenon which is practised by most of the farmers of the tropical and temperate countries. The main objective of rotation of crops is to obtain higher agricultural returns on the one hand, and to maintain the soil fertility on the other. (2) In other words, the rotation of crops helps in making agriculture more sustainable. The importance of crop rotation is more in the areas where farmers grow two, or more than two crops in the same field in a year. Irrigation facilities have also been appreciably developed in the country during the last three decades. The availability of water to the arable land has helped in the intensification of agriculture. (3) In the areas such as Punjab and Haryana, where the Green Revolution is a big success, one soil exhaustive crop (rice) is followed by another soil exhaustive crop (wheat). Subsequently, the field vacated by wheat is devoted to either rice or maize or cotton
+
+---
+
+**Q1** *(Set 2, MCQ)*
+
+1. Read the following passage carefully : 10 (1) Plastic pollution has become one of the most pressing environmental issues, as rapidly increasing production of disposable plastic products most visible in developing Asian and African nations, where garbage collection systems are often inefficient or nonexistent. But the developed world, especially in countries with low recycling rates, also has trouble properly collecting discarded plastics. Plastic trash has become so ubiquitous that it has prompted efforts to write a global treaty negotiated by the United Nations. (2) Plastics made from fossil fuels are just over a century old. Production and development of thousands of new plastic products accelerated after World War II. It transformed the modern age so much that life without plastics is unrecognizable today. Plastics revolutionized medicine with life-saving devices, made space travel possible, lightened cars and jets saving fuel and pollution and saved lives with helmets, incubator
+
+---
+
+**Q2** *(Set 2, MCQ)*
+
+2. Read the following passage carefully : 10 (1) Rotation of crops is a universal phenomenon which is practised by most of the farmers of the tropical and temperate countries. The main objective of rotation of crops is to obtain higher agricultural returns on the one hand, and to maintain the soil fertility on the other. (2) In other words, the rotation of crops helps in making agriculture more sustainable. The importance of crop rotation is more in the areas where farmers grow two, or more than two crops in the same field in a year. Irrigation facilities have also been appreciably developed in the country during the last three decades. The availability of water to the arable land has helped in the intensification of agriculture. (3) In the areas such as Punjab and Haryana, where the Green Revolution is a big success, one soil exhaustive crop (rice) is followed by another soil exhaustive crop (wheat). Subsequently, the field vacated by wheat is devoted to either rice or maize or cotton
+
+---
+
+**Q1** *(Set 3, MCQ)*
+
+1. Read the following passage carefully : 10 (1) Plastic pollution has become one of the most pressing environmental issues, as rapidly increasing production of disposable plastic products most visible in developing Asian and African nations, where garbage collection systems are often inefficient or nonexistent. But the developed world, especially in countries with low recycling rates, also has trouble properly collecting discarded plastics. Plastic trash has become so ubiquitous that it has prompted efforts to write a global treaty negotiated by the United Nations. (2) Plastics made from fossil fuels are just over a century old. Production and development of thousands of new plastic products accelerated after World War II. It transformed the modern age so much that life without plastics is unrecognizable today. Plastics revolutionized medicine with life-saving devices, made space travel possible, lightened cars and jets saving fuel and pollution and saved lives with helmets, incubator
+
+---
+
+**Q2** *(Set 3, MCQ)*
+
+2. Read the following passage carefully : 10 (1) Rotation of crops is a universal phenomenon which is practised by most of the farmers of the tropical and temperate countries. The main objective of rotation of crops is to obtain higher agricultural returns on the one hand, and to maintain the soil fertility on the other. (2) In other words, the rotation of crops helps in making agriculture more sustainable. The importance of crop rotation is more in the areas where farmers grow two, or more than two crops in the same field in a year. Irrigation facilities have also been appreciably developed in the country during the last three decades. The availability of water to the arable land has helped in the intensification of agriculture. (3) In the areas such as Punjab and Haryana, where the Green Revolution is a big success, one soil exhaustive crop (rice) is followed by another soil exhaustive crop (wheat). Subsequently, the field vacated by wheat is devoted to either rice or maize or cotton
+
+---
+
+### Year: 2025
+
+**Q1** *(Set 1, Comprehension)*
+
+1. Read the passage given below : Most people love to sing. Whether or not they sing in tune, people seem to understand that there is something positive something healthy in the act of raising voices in song. There is concrete evidence in studies that singing is good for your body and your mind. In closely-knit rural communities, one still hears women singing before dawn while grinding grain, singing in the fields while planting or harvesting, singing at marriages, during festivals and fairs. For these women, singing comes as naturally as breathing. These communities have largely oral cultures and non-literate lifestyles. They sing not to entertain others but to celebrate festivals, express their own joys and sorrows, their gratitude to nature, to their gods. In such communities, singing is mostly a group activity, an expression of community identity. Even today, people bond by singing together in churches, temples, monasteries and other places of worship. Through the ages, songs have 
+
+---
+
+**Q2** *(Set 1, Comprehension)*
+
+2. Read the passage given below : Going Digital But building them will not be easy. All over the world, libraries have begun the Herculean task of making faithful digital copies of the books, images and recordings that preserve the intellectual effort of humankind. For armchair scholars, the work promises to bring such a wealth of information to the desktop that the present Internet may seem amateurish in retrospect. Librarians see three clear benefits to going digital. First, it helps them preserve rare and fragile objects without denying access to those who wish to study them. The British Library, for example, holds the only medieval manuscript of Beowulf in London. Qualified scholars scanned the ancient manuscript with three different light sources (revealing details not normally apparent to the naked eye) and put the images up on the Internet for anyone to peruse. National Diet Library is similarly creating detailed digital photographs of 1,236 woodblock prints, scrolls and other m
+
+---
+
+**Q1** *(Set 2, Comprehension)*
+
+1. Read the passage given below : Going Digital But building them will not be easy. All over the world, libraries have begun the Herculean task of making faithful digital copies of the books, images and recordings that preserve the intellectual effort of humankind. For armchair scholars, the work promises to bring such a wealth of information to the desktop that the present Internet may seem amateurish in retrospect. Librarians see three clear benefits to going digital. First, it helps them preserve rare and fragile objects without denying access to those who wish to study them. The British Library, for example, holds the only medieval manuscript of Beowulf in London. Qualified scholars scanned the ancient manuscript with three different light sources (revealing details not normally apparent to the naked eye) and put the images up on the Internet for anyone to peruse. National Diet Library is similarly creating detailed digital photographs of 1,236 woodblock prints, scrolls and other m
+
+---
+
+**Q2** *(Set 2, Comprehension)*
+
+2. Read the passage given below : Most people love to sing. Whether or not they sing in tune, people seem to understand that there is something positive something healthy in the act of raising voices in song. There is concrete evidence in studies that singing is good for your body and your mind. In closely-knit rural communities, one still hears women singing before dawn while grinding grain, singing in the fields while planting or harvesting, singing at marriages, during festivals and fairs. For these women, singing comes as naturally as breathing. These communities have largely oral cultures and non-literate lifestyles. They sing not to entertain others but to celebrate festivals, express their own joys and sorrows, their gratitude to nature, to their gods. In such communities, singing is mostly a group activity, an expression of community identity. Even today, people bond by singing together in churches, temples, monasteries and other places of worship. Through the ages, songs have 
+
+---
+
+**Q1** *(Set 3, Comprehension)*
+
+1. Read the passage given below : Going Digital But building them will not be easy. All over the world, libraries have begun the Herculean task of making faithful digital copies of the books, images and recordings that preserve the intellectual effort of humankind. For armchair scholars, the work promises to bring such a wealth of information to the desktop that the present Internet may seem amateurish in retrospect. Librarians see three clear benefits to going digital. First, it helps them preserve rare and fragile objects without denying access to those who wish to study them. The British Library, for example, holds the only medieval manuscript of Beowulf in London. Qualified scholars scanned the ancient manuscript with three different light sources (revealing details not normally apparent to the naked eye) and put the images up on the Internet for anyone to peruse. National Diet Library is similarly creating detailed digital photographs of 1,236 woodblock prints, scrolls and other m
+
+---
+
+**Q2** *(Set 3, Comprehension)*
+
+2. Read the passage given below : Most people love to sing. Whether or not they sing in tune, people seem to understand that there is something positive something healthy in the act of raising voices in song. There is concrete evidence in studies that singing is good for your body and your mind. In closely-knit rural communities, one still hears women singing before dawn while grinding grain, singing in the fields while planting or harvesting, singing at marriages, during festivals and fairs. For these women, singing comes as naturally as breathing. These communities have largely oral cultures and non-literate lifestyles. They sing not to entertain others but to celebrate festivals, express their own joys and sorrows, their gratitude to nature, to their gods. In such communities, singing is mostly a group activity, an expression of community identity. Even today, people bond by singing together in churches, temples, monasteries and other places of worship. Through the ages, songs have 
+
+---
+
+**Q1** *(Set 1, MCQ)*
+
+1. Read the following passage carefully : 10 (1) The words probiotics, prebiotics, and postbiotics may sound like variations of the same thing, but what a difference a prefix makes. The first is a category of health-promoting microbes. The latter two groups are types of beneficial molecules. But all three biotics are critical for supporting the community of microscopic organisms that live in the gastrointestinal tract, known as the gut microbiome. With both beneficial and harmful bacteria living in the human body, these diet-related factors the biotics help tip the balance in the positive direction. It is important to understand their differences, as even as they work together. (2) Despite their importance for the gut microbiome, the health benefits of these biotics, which are present in certain foods or result from their metabolism, extend beyond the digestive tract. A growing body of scientific evidence has linked prebiotics, probiotics, and postbiotics, with improvements in metaboli
+
+---
+
+**Q2** *(Set 1, MCQ)*
+
+2. Read the following passage carefully : 10 (1) After more than two years of hospitality industry is now cautiously hopeful. Tourism constituted 2019. But the sector was severely hit in India like in other countries in the past two years. (2) Indians are now travelling with a vengeance , as the phenomenon is called. And many, experts say, now prefer to travel within the country instead of flying to more expensive destinations abroad. The industry is also benefitting from new trends borne of the pandemic such as micro-holidays and workcations. (3) According to a survey, 51 percent of Indian travellers believed that international travel remained an important means of expanding their horizons and connecting with other cultures. Over two years, the survey said, Indian travellers are now dreaming about their next international trip and more than 70 percent of Indians are excited about being able to travel internationally. (4) There has also been an increase in the number of students going 
+
+---
+
+**Q1** *(Set 2, MCQ)*
+
+1. Read the following passage carefully : 10 (1) The words probiotics, prebiotics, and postbiotics may sound like variations of the same thing, but what a difference a prefix makes. The first is a category of health-promoting microbes. The latter two groups are types of beneficial molecules. But all three biotics are critical for supporting the community of microscopic organisms that live in the gastrointestinal tract, known as the gut microbiome. With both beneficial and harmful bacteria living in the human body, these diet-related factors the biotics help tip the balance in the positive direction. It is important to understand their differences, as even as they work together. (2) Despite their importance for the gut microbiome, the health benefits of these biotics, which are present in certain foods or result from their metabolism, extend beyond the digestive tract. A growing body of scientific evidence has linked prebiotics, probiotics, and postbiotics, with improvements in metaboli
+
+---
+
+**Q2** *(Set 2, MCQ)*
+
+2. Read the following passage carefully : 10 (1) After more than two years of hospitality industry is now cautiously hopeful. Tourism constituted 2019. But the sector was severely hit in India like in other countries in the past two years. (2) Indians are now travelling with a vengeance , as the phenomenon is called. And many, experts say, now prefer to travel within the country instead of flying to more expensive destinations abroad. The industry is also benefitting from new trends borne of the pandemic such as micro-holidays and workcations. (3) According to a survey, 51 percent of Indian travellers believed that international travel remained an important means of expanding their horizons and connecting with other cultures. Over two years, the survey said, Indian travellers are now dreaming about their next international trip and more than 70 percent of Indians are excited about being able to travel internationally. (4) There has also been an increase in the number of students going 
+
+---
+
+**Q1** *(Set 3, MCQ)*
+
+1. Read the following passage carefully : 10 (1) The words probiotics, prebiotics, and postbiotics may sound like variations of the same thing, but what a difference a prefix makes. The first is a category of health-promoting microbes. The latter two groups are types of beneficial molecules. But all three biotics are critical for supporting the community of microscopic organisms that live in the gastrointestinal tract, known as the gut microbiome. With both beneficial and harmful bacteria living in the human body, these diet-related factors the biotics help tip the balance in the positive direction. It is important to understand their differences, as even as they work together. (2) Despite their importance for the gut microbiome, the health benefits of these biotics, which are present in certain foods or result from their metabolism, extend beyond the digestive tract. A growing body of scientific evidence has linked prebiotics, probiotics, and postbiotics, with improvements in metaboli
+
+---
+
+**Q2** *(Set 3, MCQ)*
+
+2. Read the following passage carefully : 10 (1) After more than two years of hospitality industry is now cautiously hopeful. Tourism constituted 2019. But the sector was severely hit in India like in other countries in the past two years. (2) Indians are now travelling with a vengeance , as the phenomenon is called. And many, experts say, now prefer to travel within the country instead of flying to more expensive destinations abroad. The industry is also benefitting from new trends borne of the pandemic such as micro-holidays and workcations. (3) According to a survey, 51 percent of Indian travellers believed that international travel remained an important means of expanding their horizons and connecting with other cultures. Over two years, the survey said, Indian travellers are now dreaming about their next international trip and more than 70 percent of Indians are excited about being able to travel internationally. (4) There has also been an increase in the number of students going 
+
+---
+
+### Year: Compartment
+
+**Q1** *(Set 1, MCQ)*
+
+1. Read the following passage carefully : 1 Happiness is like the sun; it is often hidden by the clouds of thoughts, worries and desires. We have to scatter and dissolve these clouds to experience happiness. You dont have to create it, all you have to do is calm your mind, because when there is a quiet mind and inner peace, there is happiness. It is not something far away and unattainable and does not depend on circumstances, objects or events. Happiness is an inseparable part of our consciousness, of our essence, but hidden and covered from sight by our thoughts, desires, and worries. 2 The mind is always in a constant race from one thought to another, from one worry to another. It constantly moves from one object or task to another. This restlessness hides the happiness that is within you. It is like a choppy sea that hides the bottom. When the sea gets calm, you can see the bottom. In the same way, when the mind gets quiet, you sense the happiness that is within you. 3 You cannot se
+
+---
+
+**Q2** *(Set 1, General)*
+
+2. Read the following passage carefully : 1 There was a time when human interference was minimum, the number of wild animals was quite high and there was no problem of their protection or conservation. 2 Due to the irrational use of natural and biotic resources of the Earth in the past, most of the wildlife has been destroyed beyond retrieval. According to an estimate, in India about 200 species of wild animals and birds have become extinct and another 2500 are on the verge of extinction. Some of them are black buck, chinkara, wolf, swamp deer, nilgai, Indian gazelle, antelope, tiger, rhinoceros, gir lion, crocodile, flamingo, pelican, bustard, white crane, grey heron, mountain quail, etc. 3 In India, the Government and NGOs are taking keen interest in protection of wildlife. The Wildlife Protection Act, 1972, has several provisions for the conservation of wildlife. As many as 165 game sanctuaries and 21 national parks have been deployed to protect the natural habitat and wild animals.
+
+---
+
+**Q5** *(Set 1, MCQ)*
+
+5. It is our urgent duty to protect the natural splendour of ecosystems and to evolve a system of coexistence with every living creature upon the Earth. Based on your understanding of the passage, answer the questions given below : 10 1=10 (i) Infer one reason for the following, based on the information in the passage. The number of wild animals was quite high and there was no problem of their protection or conservation. 2/C/1 6 (ii) Select the appropriate options to fill in the blanks. Most of the wildlife has been __________ beyond __________ due to the irrational use of natural resources on the Earth. I. destroyed II. retrieval III. desertion IV. build V. revived (a) I and II (b) II and III (c) III and IV (d) IV and V (iii) Complete the following analogy correctly with a word/phrase from the passage. Flowers : Garden : : __________ : Sanctuaries (Clue : Just like flowers are in a garden, similarly _______ are in the sanctuaries.) (iv) Select the correct option to complete the senten
+
+---
+
+**Q1** *(Set 2, MCQ)*
+
+1. Read the following passage carefully : 1 Happiness is like the sun; it is often hidden by the clouds of thoughts, worries and desires. We have to scatter and dissolve these clouds to experience happiness. You dont have to create it, all you have to do is calm your mind, because when there is a quiet mind and inner peace, there is happiness. It is not something far away and unattainable and does not depend on circumstances, objects or events. Happiness is an inseparable part of our consciousness, of our essence, but hidden and covered from sight by our thoughts, desires, and worries. 2 The mind is always in a constant race from one thought to another, from one worry to another. It constantly moves from one object or task to another. This restlessness hides the happiness that is within you. It is like a choppy sea that hides the bottom. When the sea gets calm, you can see the bottom. In the same way, when the mind gets quiet, you sense the happiness that is within you. 3 You cannot se
+
+---
+
+**Q2** *(Set 2, General)*
+
+2. Read the following passage carefully : 1 There was a time when human interference was minimum, the number of wild animals was quite high and there was no problem of their protection or conservation. 2 Due to the irrational use of natural and biotic resources of the Earth in the past, most of the wildlife has been destroyed beyond retrieval. According to an estimate, in India about 200 species of wild animals and birds have become extinct and another 2500 are on the verge of extinction. Some of them are black buck, chinkara, wolf, swamp deer, nilgai, Indian gazelle, antelope, tiger, rhinoceros, gir lion, crocodile, flamingo, pelican, bustard, white crane, grey heron, mountain quail, etc. 3 In India, the Government and NGOs are taking keen interest in protection of wildlife. The Wildlife Protection Act, 1972, has several provisions for the conservation of wildlife. As many as 165 game sanctuaries and 21 national parks have been deployed to protect the natural habitat and wild animals.
+
+---
+
+**Q5** *(Set 2, MCQ)*
+
+5. It is our urgent duty to protect the natural splendour of ecosystems and to evolve a system of coexistence with every living creature upon the Earth. Based on your understanding of the passage, answer the questions given below : 10 1=10 (i) Infer one reason for the following, based on the information in the passage. The number of wild animals was quite high and there was no problem of their protection or conservation. 2/C/2 6 (ii) Select the appropriate options to fill in the blanks. Most of the wildlife has been __________ beyond __________ due to the irrational use of natural resources on the Earth. I. destroyed II. retrieval III. desertion IV. build V. revived (a) I and II (b) II and III (c) III and IV (d) IV and V (iii) Complete the following analogy correctly with a word/phrase from the passage. Flowers : Garden : : __________ : Sanctuaries (Clue : Just like flowers are in a garden, similarly _______ are in the sanctuaries.) (iv) Select the correct option to complete the senten
+
+---
+
+**Q1** *(Set 3, MCQ)*
+
+1. Read the following passage carefully : 1 Happiness is like the sun; it is often hidden by the clouds of thoughts, worries and desires. We have to scatter and dissolve these clouds to experience happiness. You dont have to create it, all you have to do is calm your mind, because when there is a quiet mind and inner peace, there is happiness. It is not something far away and unattainable and does not depend on circumstances, objects or events. Happiness is an inseparable part of our consciousness, of our essence, but hidden and covered from sight by our thoughts, desires, and worries. 2 The mind is always in a constant race from one thought to another, from one worry to another. It constantly moves from one object or task to another. This restlessness hides the happiness that is within you. It is like a choppy sea that hides the bottom. When the sea gets calm, you can see the bottom. In the same way, when the mind gets quiet, you sense the happiness that is within you. 3 You cannot se
+
+---
+
+**Q2** *(Set 3, General)*
+
+2. Read the following passage carefully : 1 There was a time when human interference was minimum, the number of wild animals was quite high and there was no problem of their protection or conservation. 2 Due to the irrational use of natural and biotic resources of the Earth in the past, most of the wildlife has been destroyed beyond retrieval. According to an estimate, in India about 200 species of wild animals and birds have become extinct and another 2500 are on the verge of extinction. Some of them are black buck, chinkara, wolf, swamp deer, nilgai, Indian gazelle, antelope, tiger, rhinoceros, gir lion, crocodile, flamingo, pelican, bustard, white crane, grey heron, mountain quail, etc. 3 In India, the Government and NGOs are taking keen interest in protection of wildlife. The Wildlife Protection Act, 1972, has several provisions for the conservation of wildlife. As many as 165 game sanctuaries and 21 national parks have been deployed to protect the natural habitat and wild animals.
+
+---
+
+**Q5** *(Set 3, MCQ)*
+
+5. It is our urgent duty to protect the natural splendour of ecosystems and to evolve a system of coexistence with every living creature upon the Earth. Based on your understanding of the passage, answer the questions given below : 10 1=10 (i) Infer one reason for the following, based on the information in the passage. The number of wild animals was quite high and there was no problem of their protection or conservation. 2/C/3 6 (ii) Select the appropriate options to fill in the blanks. Most of the wildlife has been __________ beyond __________ due to the irrational use of natural resources on the Earth. I. destroyed II. retrieval III. desertion IV. build V. revived (a) I and II (b) II and III (c) III and IV (d) IV and V (iii) Complete the following analogy correctly with a word/phrase from the passage. Flowers : Garden : : __________ : Sanctuaries (Clue : Just like flowers are in a garden, similarly _______ are in the sanctuaries.) (iv) Select the correct option to complete the senten
+
+---
+
+## Writing and Grammar
+
+### Year: 2022
+
+**Q3** *(Set 1, Long Answer)*
+
+3. Attempt any one from (i) and (ii). (i) You are Rita/Rahul and you came across the following information on your local club notice-board. Better Living How to tackle stress, build concentration and remain fit and healthy Yoga, a way of life Join free yoga camp for students. You wish to enrol but require more information. Write a letter to the Yoga Institute, M.G. Road, Pune, enquiring details of timing, batch size, eligibility, etc. for joining the course. 5 (ii) Internet provides every information one seeks at the click of a button. As a result children today are living in a comfort zone. According to research, this will result in long-term consequences which will affect their brain. Based on the following chart, write an analytical paragraph in not more than 120 words on activities to improve brain power : 5 Activities to stimulate Brain Power For the Visually Impaired Candidates only (in lieu of Q. No. 3(ii)) : (ii) Read the following report and write an analytical paragraph based
+
+---
+
+**Q4** *(Set 1, Gap Fill)*
+
+4. The following paragraph has not been edited. There is one error in each line. Identify the error and write its correction against the correct blank number. Remember to underline the correction. The first one has been done for you. 3 1=3 Error Correction While the worst for COVID-19 in India (e.g.) for of seems to be over, one may remain (a) _________ _________ vigilant and response quickly to (b) _________ _________ any future spike of cases. (c) _________ _________
+
+---
+
+**Q5** *(Set 1, Gap Fill)*
+
+5. Read the conversation below and complete the passage that follows : 2 1=2 Rahul : It is difficult to fight against peer pressure. Youth easily gets influenced by the lifestyle of its peers. Radhika : Peer pressure has its benefits as well. Our peers also motivate and inspire us to do better and work hard. Rahul said that it was difficult to fight against peer pressure as (a) ___________ . Radhika replied that peer pressure had its benefits as well it (b) ___________ .
+
+---
+
+**Q3** *(Set 1, MCQ)*
+
+3. Complete any ten of the following twelve tasks, as directed. 101=10 (i) Fill in the blank by using the correct form of the word in the brackets, for the given portion of a letter. 1 ‘Thank you for _________ (consider) my application. I look forward to working in your organization. (ii) Read the given sentence. Identify the error and supply the correction in the sentence. Ninety-seven percent of the Earth’s water is salty ocean water and another two percent is trapping in the Earth’s ice caps and glaciers. 1 Error Correction (iii) Yukti and Sanjay had a conversation about going to a restaurant. Report Yukti’s question. 1 ‘‘Does this restaurant serve good South Indian food ?’’ (iv) Read the dialogue between Amit and his sister Ananya, regarding her travel to the railway station. 1 Amit : Are you sure you can manage to go to the railway station on your own ? Ananya : Oh yes! I have already booked a cab. Select the correct option to report the above dialogue. Amit asked Ananya ________
+
+---
+
+**Q4** *(Set 1, Long Answer)*
+
+4. Attempt any one from (a) and (b) given below : 5 (a) You are Soumya Hansal / Sumit Hansal living at F-32, Shanti Nagar, Vayugarh. Seeing the inadequate healthcare infrastructure in your town, write a letter to the MLA of your area, in about 120 words, suggesting the need for improving existing healthcare facilities and creating more ‘‘Wellness Centres’’ including a specialized hospital for children and women. OR (b) You are Risha Khan / Zuhaan Khan, the sports captain of Highrise Public School, New Line, Rai Nagar. You believe that games and sports are an integral part of a student’s life. Write a letter to the editor of a national daily, in about 120 words, sharing your views on the importance of physical education and suggesting the need to establish a dedicated sports university, so that students can pursue and focus on their favourite sport.
+
+---
+
+**Q5** *(Set 1, Long Answer)*
+
+5. Attempt any one from (a) and (b) given below : 5 (a) In the past few years, the teaching-learning process has taken a leap and gone beyond the four walls of the classroom. Today, it has become possible to learn not just by sitting in a physical classroom, but from anywhere. Given below is a chart depicting the differences between E-learning and Classroom learning. Write an analytical paragraph in about 120 words, assessing the benefits and drawbacks of both, by selecting features that support your analysis. E-learning vs. Classroom learning  same place, same time  accessible anytime anywhere  at your own pace  caters to the needs of the class  transportation cost and time  no travel costs, saves time consuming OR (b) Read the given details of a computer. * electronic device that can store and process information * makes life easy and simple * physical description — monitor, keyboard, CPU and mouse * computer technology used in all fields — education, medicine, commerce, entert
+
+---
+
+**Q3** *(Set 2, Long Answer)*
+
+3. Attempt any one from (i) and (ii). (i) You are Sudha/Sudhir, Principal of Vasant School, Agra. Your school has started a Music Department. Write a letter to the Manager of Melody House, M.G. Road, Agra, wholesale suppliers of musical instruments, placing a detailed order for five musical instruments for the school. Ask for a discount on the catalogue price. 5 (ii) Conventional forms of marketing have been replaced by technology-driven digital or online marketing methods. These methods are a better contributor to business expansion. Write a paragraph in not more than 120 words analysing the following information : 5 Digital Marketing Benefits For The Visually Impaired Candidates only (in lieu of Q. No. 3(ii)) : (ii) In the technology-driven world, there is a need for complete digital transformation in business. 5 Write an analytical paragraph of 100 120 words on the importance of digital marketing. You could use the following cues : It is cost effective, helps small businesses Wide r
+
+---
+
+**Q4** *(Set 2, Gap Fill)*
+
+4. The following paragraph has not been edited. There is one error in each line. Identify the error and write its correction against the correct blank number. Remember to underline the correction. The first one has been done for you. 3 1=3 Error Correction A teacher was teaching an important lesson on the class (e.g.) on in when he notice that a student (a) _________ _________ sitting on the back (b) _________ _________ of the classroom has fallen (c) _________ _________ asleep during his lecture.
+
+---
+
+**Q5** *(Set 2, General)*
+
+5. Read the conversation given below and complete the paragraph that follows : 1 2=2 Passenger : Please give me three tickets to India Gate. Conductor : Ten rupees a ticket. The passenger requested the conductor (a) __________ . The conductor replied that (b) _________ .
+
+---
+
+**Q3** *(Set 2, MCQ)*
+
+3. Complete any ten of the following twelve tasks, as directed. 101=10 (i) Fill in the blank by using the correct form of the word in the brackets, for the given portion of a letter. 1 ‘Thank you for _________ (consider) my application. I look forward to working in your organization. (ii) Read the given sentence. Identify the error and supply the correction in the sentence. Ninety-seven percent of the Earth’s water is salty ocean water and another two percent is trapping in the Earth’s ice caps and glaciers. 1 Error Correction (iii) Yukti and Sanjay had a conversation about going to a restaurant. Report Yukti’s question. 1 ‘‘Does this restaurant serve good South Indian food ?’’ (iv) Read the dialogue between Amit and his sister Ananya, regarding her travel to the railway station. 1 Amit : Are you sure you can manage to go to the railway station on your own ? Ananya : Oh yes! I have already booked a cab. Select the correct option to report the above dialogue. Amit asked Ananya ________
+
+---
+
+**Q4** *(Set 2, Long Answer)*
+
+4. Attempt any one from (a) and (b) given below : 5 (a) You are Rashmi / Roshan, a concerned citizen, residing at G-16, Himmat Path, Nayanagar. Compose a letter in about 120 words to the Director, Municipal Corporation, drawing his attention to the open drains in your colony. The drains are not only the breeding ground for disease-causing organisms but are also polluting the surrounding areas, especially the water bodies which could lead to water-borne diseases. Suggest measures for addressing this issue. OR (b) You are Mamta / Manish, a student of Grade 11 of Hitech Public School Roopbagh. You have recently volunteered as a student-teacher in a three-week literacy camp held for the children of construction site workers in your neighbourhood. It was a fulfilling and a meaningful experience for you. It sensitized you to the needs of the community, boosted your confidence, and improved your social skills. Write a letter in about 120 words to the editor of a national daily expressing your
+
+---
+
+**Q5** *(Set 2, Long Answer)*
+
+5. Attempt any one from (a) and (b) given below : 5 (a) In the past few years, the teaching-learning process has taken a leap and gone beyond the four walls of the classroom. Today, it has become possible to learn not just by sitting in a physical classroom, but from anywhere. Given below is a chart depicting the differences between E-learning and Classroom learning. Write an analytical paragraph in about 120 words, assessing the benefits and drawbacks of both, by selecting features that support your analysis. E-learning vs. Classroom learning  same place, same time  accessible anytime anywhere  caters to the needs of the class  at your own pace  transportation cost and time  no travel costs, saves time consuming OR (b) Read the given details of a computer. * electronic device that can store and process information * makes life easy and simple * physical description — monitor, keyboard, CPU and mouse * computer technology used in all fields — education, medicine, commerce, entert
+
+---
+
+**Q3** *(Set 3, Long Answer)*
+
+3. Attempt any one from (i) and (ii). (i) You are Ankita/Ankit. You wish to pursue a course on Director, Scaler Data Science, enquiring about the eligibility, duration, fee, scholarship and placement, etc. 5 (ii) In the technology-driven world, children are spending longer hours of screen time leading to concerns regarding health and social skills. Write a paragraph of not more than 120 words analyzing the given information : 5 Mobile Social Online iPad Laptop Internet Research Entertainment phone media classes Screen Time Effects Weakening Poor social Increasing Sedentary Obesity eyesight skills isolation lifestyle For The Visually Impaired Candidates only (in lieu of Q. No. 3(ii)) : (ii) These days there has been excessive use of screen time by students. Moreover, it cannot be denied that a child of the digital era cannot be separated from technology. Write an analytical paragraph in about 100 5 You could use the following cues : Technology has changed our lifestyle Screens refer to 
+
+---
+
+**Q4** *(Set 3, Gap Fill)*
+
+4. The following paragraph has not been edited. There is one error in each line. Identify the error and write its correction against the correct blank number. Remember to underline the correction. The first one has been done for you. 3 1=3 Error Correction What about low carb and keto diet (e.g.) diet diets that is popular today ? (a) _________ _________ May they play a major role (b) _________ _________ on managing diabetes ? (c) _________ _________
+
+---
+
+**Q5** *(Set 3, General)*
+
+5. Read the conversation given below and complete the paragraph that follows : 2 1=2 Mother : Rita finish your food. Rita : burger. Mother : birthday party last evening. Rita : Give me french fries and milk shake. Mother : If you live on junk food you will spoil your health. Mother told Rita to finish her food. Rita replied that she did not want to have that food, and added . Mother advised her that they were not good for health, and added that she had eaten previous evening. Rita then asked her mother (a) _________ . Mother warned her that (b) _________ .
+
+---
+
+**Q3** *(Set 3, MCQ)*
+
+3. Complete any ten of the following twelve tasks, as directed. 101=10 (i) Fill in the blank by using the correct form of the word in the brackets, for the given portion of a letter. 1 ‘Thank you for _________ (consider) my application. I look forward to working in your organization. (ii) Read the given sentence. Identify the error and supply the correction in the sentence. Ninety-seven percent of the Earth’s water is salty ocean water and another two percent is trapping in the Earth’s ice caps and glaciers. 1 Error Correction (iii) Yukti and Sanjay had a conversation about going to a restaurant. Report Yukti’s question. 1 ‘‘Does this restaurant serve good South Indian food ?’’ (iv) Read the dialogue between Amit and his sister Ananya, regarding her travel to the railway station. 1 Amit : Are you sure you can manage to go to the railway station on your own ? Ananya : Oh yes! I have already booked a cab. Select the correct option to report the above dialogue. Amit asked Ananya ________
+
+---
+
+**Q4** *(Set 3, Long Answer)*
+
+4. Attempt any one from (a) and (b) given below : 5 (a) You are Suman Lata / Rohan Mori living at 345, Green Apartments, Tyagnagar. You have read that some prominent places in your city have been identified as high-crime areas. Women and elderly people feel scared to navigate through those areas and feel they are more likely to be robbed. To safeguard the interests of vulnerable people, write a letter to the SHO of your area, in about 120 words, requesting him/her to deploy more police personnel in high-crime areas so that the crime rate can be brought down. OR (b) You are Anjali Gehlot / Rohan Hora living at 867, Limeroad Heights, Tramnagar. You have noticed how new technologies have paved their way into every aspect of our lives. On the one hand, they have revolutionized the way we live, work and communicate, and on the other hand, it has raised concerns about data privacy and security. Write a letter to the editor of a national daily, in about 120 words, discussing the benefits and 
+
+---
+
+**Q5** *(Set 3, Long Answer)*
+
+5. Attempt any one from (a) and (b) given below : 5 (a) In the past few years, the teaching-learning process has taken a leap and gone beyond the four walls of the classroom. Today, it has become possible to learn not just by sitting in a physical classroom, but from anywhere. Given below is a chart depicting the differences between E-learning and Classroom learning. Write an analytical paragraph in about 120 words, assessing the benefits and drawbacks of both, by selecting features that support your analysis. E-learning vs. Classroom learning  same place, same time  accessible anytime anywhere  caters to the needs of the class  at your own pace  transportation cost and time  no travel costs, saves time consuming OR (b) Read the given details of a computer. * electronic device that can store and process information * makes life easy and simple * physical description — monitor, keyboard, CPU and mouse * computer technology used in all fields — education, medicine, commerce, entert
+
+---
+
+**Q3** *(Set 1, MCQ)*
+
+3. Complete any ten of the following twelve tasks, as directed. 101=10 (i) Fill in the blank by using the correct form of the word in the brackets, for the given portion of a letter. 1 I believe that with your support and ________ (cooperate), we can find a mutually agreeable solution that meets the expectations of all stakeholders involved. (ii) Read the given sentence from an electric cooker’s instruction manual. Identify the error and supply the correction in the sentence. For avoid damaging the appliance, do not immerse the electric cooker in water or any other liquid. Use the given format for your response. 1 Error Correction (iii) Amit and Pallavi had a conversation about the inauguration of Pallavi’s event. Report Amit’s question. 1 Did you manage to get any sponsors for the inauguration event scheduled for the next month ? (iv) Read the dialogue between Bharti and her mother, Geeta, regarding Geeta’s birthday plans. 1 Bharti : Do you want to go to a hill station on your birthd
+
+---
+
+**Q4** *(Set 1, Long Answer)*
+
+4. Attempt any one from (a) and (b) given below : 5 (a) As Sakshi/Saksham Bedi of 864, Solar Apartments, Lajpat Street, Dipak Nagar, you feel that the lack of proper street lighting in several areas of your neighbourhood is a threat to safety. Residents, especially those who work late shifts or return home after dark, feel vulnerable due to poorly lit streets. Write a letter to the District Magistrate of your city area, in about 120 words, stating the problem and requesting him to take necessary action for installation of streetlights in those areas. OR (b) You are Dharti Pradhan/Balal Goyal, the head girl/boy of Pinnacle School, Ustahpuri. You live in a culturally rich city with many historical monuments. You have observed that visitors have etched graffiti on these monuments and littered the area around. You are extremely disturbed at this irresponsible behaviour of the visitors. Write a letter to the editor of a national daily, in about 120 words, suggesting measures to stop such va
+
+---
+
+**Q5** *(Set 1, Long Answer)*
+
+5. Attempt any one from (a) and (b) given below : 5 (a) Natural food, typically refers to food that has not been processed or preserved in any significant way before it is consumed, while ultra-processed food refers to food items that have been altered from their natural state through various methods. Given below is a table that differentiates between natural and processed foods. Study the description given and write an analytical paragraph in about 120 words, drawing a comparison between the two : Natural Food Processed Food • High fibre • High sugar • Healthy nutrients • Unhealthy nutrients • Healthy fats • Unhealthy fats • Low sodium • High sodium • Regulates blood sugar, blood • Tasty, ready to eat pressure and provides healthy and addictive nutrients OR (b) Social Media has a lasting impact on our thought process and influences our thinking in both positive and negative ways. With the help of the given cues and using your own ideas, write an analytical paragraph on “The Impact of 
+
+---
+
+**Q3** *(Set 2, MCQ)*
+
+3. Complete any ten of the following twelve tasks, as directed. 101=10 (i) Fill in the blank by using the correct form of the word in the brackets, for the given portion of a letter. 1 I believe that with your support and ________ (cooperate), we can find a mutually agreeable solution that meets the expectations of all stakeholders involved. (ii) Read the given sentence from an electric cooker’s instruction manual. Identify the error and supply the correction in the sentence. For avoid damaging the appliance, do not immerse the electric cooker in water or any other liquid. Use the given format for your response. 1 Error Correction (iii) Amit and Pallavi had a conversation about the inauguration of Pallavi’s event. Report Amit’s question. 1 Did you manage to get any sponsors for the inauguration event scheduled for the next month ? (iv) Read the dialogue between Bharti and her mother, Geeta, regarding Geeta’s birthday plans. 1 Bharti : Do you want to go to a hill station on your birthd
+
+---
+
+**Q4** *(Set 2, Long Answer)*
+
+4. Attempt any one from (a) and (b) given below : 5 (a) As Anaisha/Anish Gupta of 84, Coral Apartment, Hoger Street, Viman Nagar, you feel that there has been a growing problem of illegal parking in the residential area of your neighbourhood, particularly near school and commercial establishments. This not only causes inconvenience to residents but also hampers the smooth flow of traffic and poses risks to pedestrians, especially children. Write a letter to the SHO of your city area, in about 120 words, stating the problem and requesting him to take necessary action for controlling the problem. Give suitable suggestions. OR (b) You are Yukti/Sanjay, the Head of Environment Club of Highways School, Hawapur. You feel concerned about the growing problem of single-use plastics and their detrimental impact on our environment. Their improper disposal is polluting our oceans, rivers and landscapes. Write a letter to the editor of a national daily, in about 120 words, suggesting measures to st
+
+---
+
+**Q5** *(Set 2, Long Answer)*
+
+5. Attempt any one from (a) and (b) given below : 5 (a) Natural food, typically refers to food that has not been processed or preserved in any significant way before it is consumed, while ultra-processed food refers to food items that have been altered from their natural state through various methods. Given below is a table that differentiates between natural and processed foods. Study the description given and write an analytical paragraph in about 120 words, drawing a comparison between the two : Natural Food Processed Food • High fibre • High sugar • Healthy nutrients • Unhealthy nutrients • Healthy fats • Unhealthy fats • Low sodium • High sodium • Regulates blood sugar, blood • Tasty, ready to eat pressure and provides healthy and addictive nutrients OR (b) Social Media has a lasting impact on our thought process and influences our thinking in both positive and negative ways. With the help of the given cues and using your own ideas, write an analytical paragraph on “The Impact of 
+
+---
+
+**Q3** *(Set 3, MCQ)*
+
+3. Complete any ten of the following twelve tasks, as directed. 101=10 (i) Fill in the blank by using the correct form of the word in the brackets, for the given portion of a letter. 1 I believe that with your support and ________ (cooperate), we can find a mutually agreeable solution that meets the expectations of all stakeholders involved. (ii) Read the given sentence from an electric cooker’s instruction manual. Identify the error and supply the correction in the sentence. For avoid damaging the appliance, do not immerse the electric cooker in water or any other liquid. Use the given format for your response. 1 Error Correction (iii) Amit and Pallavi had a conversation about the inauguration of Pallavi’s event. Report Amit’s question. 1 Did you manage to get any sponsors for the inauguration event scheduled for the next month ? (iv) Read the dialogue between Bharti and her mother, Geeta, regarding Geeta’s birthday plans. 1 Bharti : Do you want to go to a hill station on your birthd
+
+---
+
+**Q4** *(Set 3, Long Answer)*
+
+4. Attempt any one from (a) and (b) given below : 5 (a) As Kavita/Rohit Ranjan of Sooraj Apartments, Roshan Nagar, you feel that the increasing noise levels from construction activities, traffic and loud gatherings are disrupting the peace and tranquility of your neighbourhood. This is particularly problematic during late hours and is impacting the sleep and well-being of residents. Write a letter to the DM of your city area, in about 120 words, stating the problem and requesting him to take necessary action for controlling the problem of noise. Give suitable suggestions. OR (b) You are Suman/Sujit, an active member of your society’s “Save the Climate” club. You reside at 786, Hawa Colony, Saafbagh. You feel concerned about the pressing problem of climate change and the urgent need for immediate action. Write a letter to the editor of a national daily, in about 120 words, suggesting measures to advocate sustainable practices in the community. 2/2/3
+
+---
+
+**Q5** *(Set 3, Long Answer)*
+
+5. Attempt any one from (a) and (b) given below : 5 (a) Natural food, typically refers to food that has not been processed or preserved in any significant way before it is consumed, while ultra-processed food refers to food items that have been altered from their natural state through various methods. Given below is a table that differentiates between natural and processed foods. Study the description given and write an analytical paragraph in about 120 words, drawing a comparison between the two : Natural Food Processed Food • High fibre • High sugar • Healthy nutrients • Unhealthy nutrients • Healthy fats • Unhealthy fats • Low sodium • High sodium • Regulates blood sugar, blood • Tasty, ready to eat pressure and provides healthy and addictive nutrients OR (b) Social Media has a lasting impact on our thought process and influences our thinking in both positive and negative ways. With the help of the given cues and using your own ideas, write an analytical paragraph on “The Impact of 
+
+---
+
+### Year: 2023
+
+**Q3** *(Set 1, Long Answer)*
+
+3. Attempt any one from (i) and (ii). (i) You are Sujata/Sudhir, Secretary of the Student Council, Nav Vihar Public School, Mumbai. You are planning an excursion to Jim Corbett National Park for students. Write a letter to the Director, Tourism Department, Jim Corbett National Park, enquiring about a package for 100 students which would include transportation, sightseeing, boarding and lodging for 4 nights. 5 (ii) School authorities and parents have realized the benefits of encouraging their children to play and participate in sports. The age-old myth that academics is the only foundation for a successful career has been replaced. Write a paragraph in not more than 120 words analyzing the given information : 5 Benefits of playing sports Percentage of different benefits For The Visually Impaired Candidates only (in lieu of Q. No. 3(ii)) : (ii) Digital/Virtual learning came to the rescue of teachers and students during lockdown. Moreover, it also heralded the transition from old to the n
+
+---
+
+**Q4** *(Set 1, Gap Fill)*
+
+4. The following paragraph has not been edited. There is one error in each line. Identify the error and write its correction against the correct blank number. Remember to underline the correction. The first one has been done for you. 3×1=3 Error Correction Discipline at public life ensures (e.g.) at in peace and harmony, who in turn (a) ________ ________ offer the required impetous (b) ________ ________ from the progress. (c) ________ ________
+
+---
+
+**Q5** *(Set 1, Gap Fill)*
+
+5. Read the conversation below and complete the passage that follows : 2 1=2 Doctor : You must exercise daily to keep your heart fit. Patient : Is it enough if I go for a daily morning walk and do some breathing exercises ? The doctor advised the patient that he (a) _________ to keep his heart fit. The patient questioned whether it was enough if he (b) _________ and did some breathing exercises.
+
+---
+
+**Q3** *(Set 1, MCQ)*
+
+3. Complete any ten of the following twelve tasks, as directed. 101=10 (i) Fill in the blank by using the correct form of the word in the brackets, for the given portion of a letter. 1 Please do not hesitate to contact me if there are any further questions or if I can be of __________ (assist) in any way. (ii) Read the given sentence from a travel blog. Identify the error and supply the correction in the sentence. Spend a night under the stars in a traditional camp, where you can experience the warmth of our hospitable and savour the delicious local cuisine. 1 Use the given format for your response. Error Correction (iii) Kriva and Manish had a conversation about the engagement of Kriva’s brother. Report Manish’s question. 1 How far is the engagement venue from your house ? (iv) Read the dialogue between Ankita and her mentor, Sharwari, about the cultural exchange programme. 1 Ankita : Are we going to get some time off for sightseeing ? Sharwari : Oh yes! All the students will get two
+
+---
+
+**Q4** *(Set 1, Long Answer)*
+
+4. Attempt any one from (a) and (b) given below : 5 (a) You are Neha/Nehal Panjwani, residing at 8576, Sarita Apartments, Hanger Street. As a responsible citizen, you believe in promoting environmentally responsible practices. Write a letter to the Director, Alternate Energy Commission, in about 120 words, sharing your views about ‘Reducing the Carbon Footprint’ by encouraging the use of renewable energy sources, such as solar and wind power and to provide subsidies to families who want to avail the facility. OR (b) As Shobita/Shobhit Das, a responsible citizen, residing in 14-A, GVR Colony, Hoshiyarbad, you have noticed that a road crossing in your area does not have a traffic signal which leads to chaos and traffic jams during peak hours. It is also an accident-prone area. Despite writing numerous letters to the Traffic Commissioner, no action has yet been taken. Write a letter to the editor of a national daily, in about 120 words, to draw the attention of concerned authorities to ad
+
+---
+
+**Q5** *(Set 1, Long Answer)*
+
+5. Attempt any one from (a) and (b) given below : 5 (a) The effects of technology on education have been profound and multifaceted; influencing both teaching and learning in various ways. The data below shows the rising enrolment in online courses over the years. Analyze the data and write an analytical paragraph, in about 120 words, about how technology has transformed teaching and learning by shifting from classrooms to digital devices. Discuss benefits such as access to information and challenges like digital divide. S. No. Year Total number of enrolments (in millions)
+
+---
+
+**Q1** *(Set 1, General)*
+
+1. 2017 26
+
+---
+
+**Q2** *(Set 1, General)*
+
+2. 2018 43
+
+---
+
+**Q3** *(Set 1, General)*
+
+3. 2019 59
+
+---
+
+**Q4** *(Set 1, General)*
+
+4. 2020 76
+
+---
+
+**Q5** *(Set 1, General)*
+
+5. 2021 143
+
+---
+
+**Q6** *(Set 1, Long Answer)*
+
+6. 2022 189 OR (b) Read the given details about the pros and cons of artificial intelligence (AI). With the help of the given cues and your own ideas write an analytical paragraph in about 120 words on “AI – Benefits and Drawbacks”.  AI is possessed by machines  Impacted our lives in many ways  AI – Google maps  Knowledge at our fingertips  Cannot wholly replicate humans  Increase in cyber crime
+
+---
+
+**Q3** *(Set 2, Long Answer)*
+
+3. Attempt any one from (i) and (ii). (i) You are Ankita/Ankit, Computer In-charge of Maharani Public School, Bangalore. Blackboards are to be replaced by smart boards. You wish to place an order for fifteen smart boards and computer accessories. Write a letter of enquiry to Ensonic Computech, M.G. Road, Bangalore enquiring about prices, discounts and after sales service. 5 (ii) Study the bar graph given below, which shows the most important factors for achieving success, according to the younger and older generations : Write a paragraph in 120 words analysing factors for success as the ultimate goal. 5 Factors for Success For The Visually Impaired Candidates only (in lieu of Q. No. 3(ii)) : (ii) In an article on Education : Physical, Emotional and Mental Well-being, you came across the following statement. Write a paragraph to analyse the given statement. 5
+
+---
+
+**Q4** *(Set 2, Gap Fill)*
+
+4. The following paragraph has not been edited. There is one error in each line. Identify the error and write its correction against the correct blank number. Remember to underline the correction. The first one has been done for you. 3×1=3 Error Correction She reminds us that it are (e.g.) are is important to visiting museums in (a) ________ ________ our country to experience a impact (b) ________ ________ that a work of art leaves in our senses. (c) ________ ________
+
+---
+
+**Q5** *(Set 2, Gap Fill)*
+
+5. Read the conversation below and complete the passage that follows : 2 1=2 Sanjay : I am surprised to see you here in London. When did you come ? Vijay : I came here yesterday. I have been offered a job here. Sanjay told Vijay that (a) _________ and asked when he had come. Vijay replied that he had come the previous day and added that (b) _________.
+
+---
+
+**Q3** *(Set 2, MCQ)*
+
+3. Complete any ten of the following twelve tasks, as directed. 101=10 (i) Fill in the blank by using the correct form of the word in the brackets, for the given portion of a letter. 1 Please do not hesitate to contact me if there are any further questions or if I can be of __________ (assist) in any way. (ii) Read the given sentence from a travel blog. Identify the error and supply the correction in the sentence. Spend a night under the stars in a traditional camp, where you can experience the warmth of our hospitable and savour the delicious local cuisine. 1 Use the given format for your response. Error Correction (iii) Kriva and Manish had a conversation about the engagement of Kriva’s brother. Report Manish’s question. 1 How far is the engagement venue from your house ? (iv) Read the dialogue between Ankita and her mentor, Sharwari, about the cultural exchange programme. 1 Ankita : Are we going to get some time off for sightseeing ? Sharwari : Oh yes! All the students will get two
+
+---
+
+**Q4** *(Set 2, Long Answer)*
+
+4. Attempt any one from (a) and (b) given below : 5 (a) You are Richa Ramya/Romil Kamil, residing at 4345, Nector Apartments, Short Street. You have noticed loose electric wires hanging out of poles. As a concerned resident, you feel worried about the potential hazards these exposed wires pose, especially to children who frequent the garden. Write a letter to the President of the RWA of your society, in about 120 words, requesting an urgent intervention to address this issue. OR (b) As Karma Sood/Kalyan Sood, a responsible citizen and resident of 41B, Global Village, Jaknet Nagar, you have noticed that there are no proper pavements to walk on the sides of all the main roads in your city, which puts the lives of pedestrians at danger. It also causes air pollution when high speed vehicles run through the muddy path. Write a letter to the editor of a national daily in about 120 words to highlight the issue, and bring the attention of concerned authorities to take prompt action.
+
+---
+
+**Q5** *(Set 2, Long Answer)*
+
+5. Attempt any one from (a) and (b) given below : 5 (a) The effects of technology on education have been profound and multifaceted; influencing both teaching and learning in various ways. The data below shows the rising enrolment in online courses over the years. Analyze the data and write an analytical paragraph, in about 120 words, about how technology has transformed teaching and learning by shifting from classrooms to digital devices. Discuss benefits such as access to information and challenges like digital divide. S. No. Year Total number of enrolments (in millions)
+
+---
+
+**Q1** *(Set 2, General)*
+
+1. 2017 26
+
+---
+
+**Q2** *(Set 2, General)*
+
+2. 2018 43
+
+---
+
+**Q3** *(Set 2, General)*
+
+3. 2019 59
+
+---
+
+**Q4** *(Set 2, General)*
+
+4. 2020 76
+
+---
+
+**Q5** *(Set 2, General)*
+
+5. 2021 143
+
+---
+
+**Q6** *(Set 2, Long Answer)*
+
+6. 2022 189 OR (b) Read the given details about the pros and cons of artificial intelligence (AI). With the help of the given cues and your own ideas write an analytical paragraph in about 120 words on “AI – Benefits and Drawbacks”.  AI is possessed by machines  Impacted our lives in many ways  AI – Google maps  Knowledge at our fingertips  Cannot wholly replicate humans  Increase in cyber crime
+
+---
+
+**Q3** *(Set 3, Long Answer)*
+
+3. Attempt any one from (i) and (ii). (i) You are Meera/Madhur, librarian of Vidya Bharti, Cantt Road, Lucknow. Write a letter to Oxford Publication placing a detailed th th order of textbooks for classes 6 8 for your school library. Mention subjects and quantity. Ask for a discount on the catalogue price. 5 (ii) The given pie chart shows the data on hobbies of students during summer vacations : Write an analytical paragraph in 100 120 words to analyze the data. 5 Hobbies of Students during Summer Vacations For The Visually Impaired Candidates Only (in lieu of Q. No. 3(ii)) : (ii) The school has announced a two week mid-term break during which th th it will be organising a hobby camp for students of classes 6 8 . Parents feel that it is too close to the examinations and children need to focus on academics. Write a paragraph in not more than 120 words to analyze the above argument. 5
+
+---
+
+**Q4** *(Set 3, Gap Fill)*
+
+4. The following paragraph has not been edited. There is one error in each line. Identify the error and write its correction against the correct blank number. Remember to underline the correction. The first one has been done for you. 3×1=3 Error Correction Is money the more important (e.g.) more most thing of life ? Money is certainly (a) ________ ________ something what is often discussed (b) ________ ________ (c) ________ ________ goes without a discussion on this topic.
+
+---
+
+**Q5** *(Set 3, Gap Fill)*
+
+5. Read the conversation below and complete the passage that follows : 2 1=2 Seema : Why have t you brought my practical file ? Rita : to keep it. Seema : make an excuse. I want to know the truth. Rita : I am sorry Seema. I was chatting with my friends till late. I forgot that you needed it urgently. Seema asked Rita (a) _________. Rita said that she had gone to her (b) _________. Rita said that she was sorry and further added she had been chatting with her friends till late and she had forgotten that Seema needed it urgently that day.
+
+---
+
+**Q3** *(Set 3, MCQ)*
+
+3. Complete any ten of the following twelve tasks, as directed. 101=10 (i) Fill in the blank by using the correct form of the word in the brackets, for the given portion of a letter. 1 Please do not hesitate to contact me if there are any further questions or if I can be of __________ (assist) in any way. (ii) Read the given sentence from a travel blog. Identify the error and supply the correction in the sentence. Spend a night under the stars in a traditional camp, where you can experience the warmth of our hospitable and savour the delicious local cuisine. 1 Use the given format for your response. Error Correction (iii) Kriva and Manish had a conversation about the engagement of Kriva’s brother. Report Manish’s question. 1 How far is the engagement venue from your house ? (iv) Read the dialogue between Ankita and her mentor, Sharwari, about the cultural exchange programme. 1 Ankita : Are we going to get some time off for sightseeing ? Sharwari : Oh yes! All the students will get two
+
+---
+
+**Q4** *(Set 3, Long Answer)*
+
+4. Attempt any one from (a) and (b) given below : 5 (a) You are Falguni/Ashish residing at 98, Krystal Garden Apartments, Jonsabad. You have noticed that the swimming pool in your society is poorly maintained and has become a breeding ground for mosquitoes. As a resident and frequent user of the pool facilities, you feel deeply concerned about the potential health risks posed by the presence of mosquitoes. Write a letter, in about 120 words, to the Secretary of the RWA of your society, requesting him to take immediate action to address this issue to mitigate the problem. OR (b) As Yusra/Yousuf, the Secretary of the RWA of your society, residing at 493, Stargazing Apartments, Newbagh, you have noticed many small plots of land lying unattended in your city. You feel that the plots can be utilized to create green spaces where people can sit and relax. Write a letter to the editor of a national daily in about 120 words, highlighting the issue and urging necessary action from the concerned 
+
+---
+
+**Q5** *(Set 3, Long Answer)*
+
+5. Attempt any one from (a) and (b) given below : 5 (a) The effects of technology on education have been profound and multifaceted; influencing both teaching and learning in various ways. The data below shows the rising enrolment in online courses over the years. Analyze the data and write an analytical paragraph, in about 120 words, about how technology has transformed teaching and learning by shifting from classrooms to digital devices. Discuss benefits such as access to information and challenges like digital divide. S. No. Year Total number of enrolments (in millions)
+
+---
+
+**Q1** *(Set 3, General)*
+
+1. 2017 26
+
+---
+
+**Q2** *(Set 3, General)*
+
+2. 2018 43
+
+---
+
+**Q3** *(Set 3, General)*
+
+3. 2019 59
+
+---
+
+**Q4** *(Set 3, General)*
+
+4. 2020 76
+
+---
+
+**Q5** *(Set 3, General)*
+
+5. 2021 143
+
+---
+
+**Q6** *(Set 3, Long Answer)*
+
+6. 2022 189 OR (b) Read the given details about the pros and cons of artificial intelligence (AI). With the help of the given cues and your own ideas write an analytical paragraph in about 120 words on “AI – Benefits and Drawbacks”.  AI is possessed by machines  Impacted our lives in many ways  AI – Google maps  Knowledge at our fingertips  Cannot wholly replicate humans  Increase in cyber crime
+
+---
+
+### Year: 2023 (Supplementary)
+
+**Q3** *(Set 1, MCQ)*
+
+3. Complete any ten of the following twelve tasks, as directed. 10´1=10 (i) Fill in the blank by using the correct form of the word in the bracket. 1 My sister Mona _________ (fall) down when the dog leapt at her. (ii) Read the given sentence. Identify the error and supply the correction in the sentence. In the last five decades, the Rubik Cube has become one of the much absorbing puzzles for children. 1 Error Correction (iii) Neha and Rudra were doing a theatre presentation. Report Neha’s question. 1 Are the costumes and props ready for the rehearsal tomorrow ? (iv) Read the dialogue below : 1 Vinay : Did you attend the seminar on “Effective Speaking,” yesterday ? Vineeta : Yes I did. I learnt some valuable skills from the speaker. Choose the correct option to complete the dialogue. Vinay asked Vineeta __________. Vineeta responded positively and said that she had learnt valuable skills from the speaker. (A) whether she had attended the seminar on “Effective Speaking”, the day before 
+
+---
+
+**Q4** *(Set 1, Long Answer)*
+
+4. Attempt any one from (a) and (b) given below : 5 (a) You are disturbed by the poor reading habits of school children today. As a result, communication is impacted, which will have far-reaching consequences. As Shivika/Shiv Gupta of 21, Valley Apartments, Shaambagh, write a letter in about 120 words to the Municipal Councillor of your area, requesting him to create and maintain public libraries as reading zones. Also suggest, how community members can support such projects. OR (b) As Nilima/Nilesh, Sports Secretary of Red Tree Public School, Aakashpur, you believe that the youth today must actively involve itself in sports and other physical activities. Write a letter to the editor of a national daily in about 120 words, suggesting that stadiums and sports centres should be made available to the students to promote participation in sports. 2/S/1
+
+---
+
+**Q5** *(Set 1, Long Answer)*
+
+5. Attempt any one from (a) and (b) given below : 5 (a) Aarti/Aarav of class X is preparing for her/his exams and members of her/his study circle wish to learn how to manage their time well. Aarti/Aarav prepares the notes below on the principles of time management. * Principles of Time Management * Prioritize — identify important tasks * Plan — create timelines Expect change in routine * Anticipate problems * * Delegate tasks — gather resources Write an analytical paragraph in about 120 words either accepting or rejecting Aarti’s/Aarav’s plan. OR (b) Read the given details of a new mall that has recently opened in your area. • Location • Physical description • Number of stores, food courts, cafés, entertainment zone • Amenities – escalators, wheelchair ramp • Congestion on roads, traffic jams Analyse the details and write an analytical paragraph in about 120 words. 2/S/1
+
+---
+
+**Q3** *(Set 2, MCQ)*
+
+3. Complete any ten of the following twelve tasks, as directed. 10´1=10 (i) Fill in the blank by using the correct form of the word in the bracket. 1 My sister Mona _________ (fall) down when the dog leapt at her. (ii) Read the given sentence. Identify the error and supply the correction in the sentence. In the last five decades, the Rubik Cube has become one of the much absorbing puzzles for children. 1 Error Correction (iii) Neha and Rudra were doing a theatre presentation. Report Neha’s question. 1 Are the costumes and props ready for the rehearsal tomorrow ? (iv) Read the dialogue below : 1 Vinay : Did you attend the seminar on “Effective Speaking,” yesterday ? Vineeta : Yes I did. I learnt some valuable skills from the speaker. Choose the correct option to complete the dialogue. Vinay asked Vineeta __________. Vineeta responded positively and said that she had learnt valuable skills from the speaker. (A) whether she had attended the seminar on “Effective Speaking”, the day before 
+
+---
+
+**Q4** *(Set 2, Long Answer)*
+
+4. Attempt any one from (a) and (b) given below : 5 (a) In the recent years, there has been a spurt in the commercialization of residential properties. This is a cause of great nuisance and annoyance to the residents in the adjoining areas. Write a letter to the editor of a national newspaper, in about 120 words, drawing attention to the growing problem in the city and the inconveniences that follow. You are Ritika/Ritik, residing at 46, New Town, Roshnipur. OR (b) Write a letter in about 120 words to the Chairman, Sports Authority of your city. Draw his attention to the poor sports facilities for the public. Mention the disadvantages of the situation, and give suggestions on how sports infrastructure can be improved. You are Sujata/Shreyas, residing at 8-A, Sea View Apartments, Samudrashahar. 2/S/2
+
+---
+
+**Q5** *(Set 2, Long Answer)*
+
+5. Attempt any one from (a) and (b) given below : 5 (a) Aarti/Aarav of class X is preparing for her/his exams and members of her/his study circle wish to learn how to manage their time well. Aarti/Aarav prepares the notes below on the principles of time management. * Principles of Time Management * Prioritize — identify important tasks * Plan — create timelines Expect change in routine * Anticipate problems * * Delegate tasks — gather resources Write an analytical paragraph in about 120 words either accepting or rejecting Aarti’s/Aarav’s plan. OR (b) Read the given details of a new mall that has recently opened in your area. • Location • Physical description • Number of stores, food courts, cafés, entertainment zone • Amenities – escalators, wheelchair ramp • Congestion on roads, traffic jams Analyse the details and write an analytical paragraph in about 120 words. 2/S/2
+
+---
+
+**Q3** *(Set 3, MCQ)*
+
+3. Complete any ten of the following twelve tasks, as directed. 10´1=10 (i) Fill in the blank by using the correct form of the word in the bracket. 1 My sister Mona _________ (fall) down when the dog leapt at her. (ii) Read the given sentence. Identify the error and supply the correction in the sentence. In the last five decades, the Rubik Cube has become one of the much absorbing puzzles for children. 1 Error Correction (iii) Neha and Rudra were doing a theatre presentation. Report Neha’s question. 1 Are the costumes and props ready for the rehearsal tomorrow ? (iv) Read the dialogue below : 1 Vinay : Did you attend the seminar on “Effective Speaking,” yesterday ? Vineeta : Yes I did. I learnt some valuable skills from the speaker. Choose the correct option to complete the dialogue. Vinay asked Vineeta __________. Vineeta responded positively and said that she had learnt valuable skills from the speaker. (A) whether she had attended the seminar on “Effective Speaking”, the day before 
+
+---
+
+**Q4** *(Set 3, Long Answer)*
+
+4. Attempt any one from (a) and (b) given below : 5 (a) To encourage community engagement and involvement of children, you would like to organise some activities in the colony. You are Prerna/Prasoon, a resident of 36, Sagar Colony, Poornapur. Write a letter in about 120 words to the President of the Resident Welfare Association, emphasizing on the need for such programmes. Give suggestions of the kind of programmes you would like to organise, e.g., cyclothon, painting competition, senior citizen meets, etc. OR (b) To sensitize children to the concept of sharing and caring, the school introduced a voluntary community service camp during the summer vacation. As a parent of a volunteer, write a letter in about 120 words to the Principal, appreciating the activity. Give details of the programme that took place and urge the Principal to hold such programmes in the future as they benefit the overall development of the children. You are Tarini/Tarun a resident of A-6/IV, Green Colony, Hawapu
+
+---
+
+**Q5** *(Set 3, Long Answer)*
+
+5. Attempt any one from (a) and (b) given below : 5 (a) Aarti/Aarav of class X is preparing for her/his exams and members of her/his study circle wish to learn how to manage their time well. Aarti/Aarav prepares the notes below on the principles of time management. * Principles of Time Management * Prioritize — identify important tasks * Plan — create timelines Expect change in routine * Anticipate problems * * Delegate tasks — gather resources Write an analytical paragraph in about 120 words either accepting or rejecting Aarti’s/Aarav’s plan. OR (b) Read the given details of a new mall that has recently opened in your area. • Location • Physical description • Number of stores, food courts, cafés, entertainment zone • Amenities – escalators, wheelchair ramp • Congestion on roads, traffic jams Analyse the details and write an analytical paragraph in about 120 words. 2/S/3
+
+---
+
+### Year: 2024
+
+**Q3** *(Set 1, MCQ)*
+
+3. Complete any ten of the following twelve tasks, as directed. 10 1=10 (i) Read the given sentence from a science journal. Identify the error and supply the correction in the sentence. apy is provided by a qualified professional, people could learn how to make better food choices. 1 Use the given format for your response. Error Correction (ii) Fill in the blank by using the correct form of the word in the brackets, for the given portion of a letter. 1 Please keep me ___________ (apprise) of your next step to address this matter. Thanks for your time. (iii) Sunanda and Pushkar had a conversation about their travels. Report Pushkars question. 1 Have you ever been to Peri Bagh ? (iv) Read the dialogue between Vilakshna and her physician, Dr. Sharnani, regarding the effectiveness of her medication. 1 Dr. Sharnani : How is your acid reflux problem now ? Vilakshna : medicine is great. Select the correct option to complete the reporting of the above dialogue. Dr. Sharnani asked Vilakshna abo
+
+---
+
+**Q4** *(Set 1, Long Answer)*
+
+4. Attempt any one from (a) and (b) given below : 5 (a) The problem of speeding traffic on colony roads causing accidents is increasing day by day. As a young citizen, who wants to minimize the accidents caused by them, write a letter to the editor of a national daily, in about 120 words, expressing your concern at the situation and suggesting measures to resolve the problem and drawing attention of the concerned authorities. You are Samyukta Khanna/Sanjay Khanna of 567, Madhur Apartments, Amar Vihar, Aram Nagar. OR (b) As Kaveri Mahajan, of 543, Narmada Apartments, Jeev Nagar, you feel that during the monsoon season all the rain water goes down the drain without being utilized. Write a letter to the RWA of your society, in about 120 words, suggesting measures to save and preserve rain water emphasizing the importance of saving every drop of water.
+
+---
+
+**Q5** *(Set 1, Long Answer)*
+
+5. Attempt any one from (a) and (b) given below : 5 (a) Co-curricular activities help to enhance holistic development and assist in inculcating critical skills and abilities to be successful and happy in the 21st century life and workplace. Based on the table given below, write an analytical paragraph, in about 120 words, on how co-curricular activities supplement the theoretical curriculum. ESSENTIAL SKILLS AND VALUES THAT CAN BE DEVELOPED THROUGH CO-CURRICULAR ACTIVITIES logical and analytical thinking creative and critical thinking problem-solving skills leadership skills social, emotional and communication skills recreational value enhanced technology skills OR (b) . The following table provides an insight into the multifaceted impact and positive contributions of tourism. Write an analytical paragraph in about 120 words assessing the significance of tourism. IMPACT OF TOURISM contributes to GDP and foreign exchange boosts local markets and businesses creates employment preserves c
+
+---
+
+**Q3** *(Set 2, MCQ)*
+
+3. Complete any ten of the following twelve tasks, as directed. 10 1=10 (i) Read the given sentence from a sports journal. Identify the error and supply the correction in the sentence. 1 In present times, physiologists would travel the world to conferences and meetings to present their findings to other scientists. Use the given format for your response. Error Correction (ii) Fill in the blank by using the correct form of the word in the brackets, for the given portion of a letter. 1 Dear Sir, I am an account holder in your branch at Jayanagar. My current ATM card is ____________ (damage) and I am unable to use it for any POS transaction. (iii) Kevin and Rohan had a conversation about their college admissions. Report Rohans question. 1 Would you be interested in studying arts or medicine ? (iv) Read the dialogue between Yogita and Nandini, regarding the progress of a task. 1 Yogita : How long have you been working on this task ? Nandini : Ive been working for two hours. Select the corr
+
+---
+
+**Q4** *(Set 2, Long Answer)*
+
+4. Attempt any one from (a) and (b) given below : 5 (a) The street lights of your locality are not functioning properly leaving stretches of dark/blind spots at night. Due to this problem, chain and mobile snatching incidents have increased. Write a letter to the editor of a local daily, in about 120 words, expressing your concern at the situation and suggesting measures to resolve the problem and drawing attention of the concerned authorities. You are Tamay Saroha/Gauri Saroha of 709, Gold Apartments, Prem Vihar, Amar Nagar. OR (b) As Sarla Mehta/Santosh Mehta of 983, Sterling Apartments, Vikas Nagar, you believe in the importance of staying fit and exercising. Your society does not have an open gym in the premises. Write a letter to the RWA of your society, in about 120 words, requesting them to set up an open gym in the garden area where residents can exercise, emphasizing upon the importance of staying fit and healthy.
+
+---
+
+**Q5** *(Set 2, Long Answer)*
+
+5. Attempt any one from (a) and (b) given below : 5 (a) Libraries provide access to resources and materials that might not be available or affordable otherwise, allowing students to further their learning, understanding and research. The following chart shows the library framework and the importance of libraries. Based on the given information, write an analytical paragraph, in about 120 words, assessing the importance of libraries for us. OR (b) A survey was conducted to find out the number of speakers of various languages in the world. The chart below reflects the same. Analyze this chart and write an analytical paragraph, in about 120 words, by selecting features that support your analysis.
+
+---
+
+**Q3** *(Set 3, MCQ)*
+
+3. Complete any ten of the following twelve tasks, as directed. 10 1=10 (i) Read the given sentence from an art journal. Identify the error and supply the correction in the sentence. When marginalized voices get a chance to tell their story, anger or sadness would be a justified theme. 1 Use the given format for your response. Error Correction (ii) Fill in the blank by using the correct form of the word in the brackets, for the given portion of a letter. 1 Kindly pay heed to our request and provide the students with __________ (adequacy) support on their project. (iii) Monika and Sunil had a conversation about their summer vacation plans. Report Sunils question. 1 Are you planning to visit your hometown during the summer vacation ? (iv) Read the dialogue between Shambhavi and Akshat, regarding a tree plantation drive. 1 Shambhavi : How do you plan to contribute to the tree plantation drive ? Akshat : I have prepared a speech for the morning assembly to raise awareness about the drive. 
+
+---
+
+**Q4** *(Set 3, Long Answer)*
+
+4. Attempt any one from (a) and (b) given below : 5 (a) In your local market, you have noticed that young children are working in a few restaurants. You were aghast to see a blatant violation of laws. Write a letter to the editor of a national daily, in about 120 words, expressing your concern at the situation and suggesting measures to resolve the problem and drawing attention of the concerned authorities. You are Mauzam Haseeb/Nasifa Khan of 917, Platinum Apartments, Gomti Vihar, Kath Nagar. OR (b) As John Silva/Jane Pereira of 64, Sangam Apartments, Sunrise Hills, you feel very unhappy at the poor maintenance of the public parks in your area. As a result children have no place to play and parents find it difficult to walk on the tracks. Write a letter to the CEO of Sunrise Hills, in about 120 words, expressing your concern at the situation and suggesting measures to resolve the issue of poor maintenance.
+
+---
+
+**Q5** *(Set 3, Long Answer)*
+
+5. Attempt any one from (a) and (b) given below : 5 (a) Energy drinks are drinks containing stimulant compounds, usually caffeine, which is marketed as providing mental and physical stimulation (marketed as energy, but distinct from food energy). The following table shows some of the potential risks of energy drinks. Based on the given information, write an analytical paragraph, in about 120 words, assessing the short-term benefits versus common risks of energy drinks. POTENTIAL RISKS OF ENERGY DRINKS Recent studies have shown that whilst there are undoubtedly some short-term benefits of energy drinks, over-consumption does present some common risks and symptoms including : palpitations dizziness tremors tingling or numbing of skin agitation insomnia gastrointestinal problems respiratory distress chest pain headache OR 2/4/3-14 12 (b) Ecotourism means responsible travel to natural areas, that minimises the negative impact on the environment, making it an appealing choice for environmen
+
+---
+
+### Year: 2025
+
+**Q3** *(Set 1, Long Answer)*
+
+3. Attempt any one from (i) and (ii). (i) The recent pandemic has reinforced the importance of health and exercise. The Resident Welfare Association of Green Park has decided to organise Yoga classes. Write a letter to the Manager individual/group sessions, time slots and costs involved along with other relevant details. You are Rakesh/Ritika Mathur, 721, Green Park, New Delhi. 5 (ii) There is no greater love than the love for food. The following graph shows eating habits of teenagers and how often they go out to eat. Eating habits of teenagers : Number of times eaten per year Write a paragraph in not more than 120 words analysing the listed responses. 5 For the Visually Impaired Candidates only (in lieu of Q. No. 3(ii)) : (ii) School canteens today do not serve junk food to the students. This has raised a hue and cry amongst the children. Write a paragraph in not more than 120 words analysing the above argument. You may use the following information : 5
+
+---
+
+**Q1** *(Set 1, General)*
+
+1. Junk food leads to obesity
+
+---
+
+**Q2** *(Set 1, General)*
+
+2. Not wholesome or nutritious
+
+---
+
+**Q3** *(Set 1, General)*
+
+3. Falsely advertised
+
+---
+
+**Q4** *(Set 1, General)*
+
+4. Leads to poor eating habits
+
+---
+
+**Q4** *(Set 1, General)*
+
+4. The following paragraph has an error in each line with a blank. Write the correct and the incorrect option in the space provided. The first one has been done for you. 3 1=3 Incorrect Correct Fossil fuels are made for decomposing (e.g.) for from plants and animals. These fuels is found in (a) _________ _________ (b) _________ _________ hydrogen who can be burned for energy. (c) _________ _________
+
+---
+
+**Q5** *(Set 1, Gap Fill)*
+
+5. Read the conversation below and complete the passage that follows : 2 1=2 Artist : When will the costumes arrive ? Manager : There is a slight delay but they will arrive today in the evening. The artist asked the manager (a) ___________ . The manager replied that (b) ___________ in the evening.
+
+---
+
+**Q3** *(Set 2, Long Answer)*
+
+3. Attempt any one from (i) and (ii). (i) The recent pandemic has reinforced the importance of health and exercise. The Resident Welfare Association of Green Park has decided to organise Yoga classes. Write a letter to the Manager individual/group sessions, time slots and costs involved along with other relevant details. You are Rakesh/Ritika Mathur, 721, Green Park, New Delhi. 5 (ii) There is no greater love than the love for food. The following graph shows eating habits of teenagers and how often they go out to eat. Eating habits of teenagers : Number of times eaten per year Write a paragraph in not more than 120 words analysing the listed responses. 5 For the Visually Impaired Candidates only (in lieu of Q. No. 3(ii)) : (ii) School canteens today do not serve junk food to the students. This has raised a hue and cry amongst the children. Write a paragraph in not more than 120 words analysing the above argument. You may use the following information : 5
+
+---
+
+**Q1** *(Set 2, General)*
+
+1. Junk food leads to obesity
+
+---
+
+**Q2** *(Set 2, General)*
+
+2. Not wholesome or nutritious
+
+---
+
+**Q3** *(Set 2, General)*
+
+3. Falsely advertised
+
+---
+
+**Q4** *(Set 2, General)*
+
+4. Leads to poor eating habits
+
+---
+
+**Q4** *(Set 2, Gap Fill)*
+
+4. Read the conversation below and complete the passage that follows : 2 1=2 Artist : When will the costumes arrive ? Manager : There is a slight delay but they will arrive today in the evening. The artist asked the manager (a) ___________ . The manager replied that (b) ___________ in the evening.
+
+---
+
+**Q5** *(Set 2, General)*
+
+5. The following paragraph has an error in each line with a blank. Write the correct and the incorrect option in the space provided. The first one has been done for you. 3 1=3 Incorrect Correct Fossil fuels are made for decomposing (e.g.) for from plants and animals. These fuels is found in (a) _________ _________ (b) _________ _________ hydrogen who can be burned for energy. (c) _________ _________
+
+---
+
+**Q3** *(Set 3, Long Answer)*
+
+3. Attempt any one from (i) and (ii). (i) The recent pandemic has reinforced the importance of health and exercise. The Resident Welfare Association of Green Park has decided to organise Yoga classes. Write a letter to the Manager individual/group sessions, time slots and costs involved along with other relevant details. You are Rakesh/Ritika Mathur, 721, Green Park, New Delhi. 5 (ii) There is no greater love than the love for food. The following graph shows eating habits of teenagers and how often they go out to eat. Eating habits of teenagers : Number of times eaten per year Write a paragraph in not more than 120 words analysing the listed responses. 5 For the Visually Impaired Candidates only (in lieu of Q. No. 3(ii)) : (ii) School canteens today do not serve junk food to the students. This has raised a hue and cry amongst the children. Write a paragraph in not more than 120 words analysing the above argument. You may use the following information : 5
+
+---
+
+**Q1** *(Set 3, General)*
+
+1. Junk food leads to obesity
+
+---
+
+**Q2** *(Set 3, General)*
+
+2. Not wholesome or nutritious
+
+---
+
+**Q3** *(Set 3, General)*
+
+3. Falsely advertised
+
+---
+
+**Q4** *(Set 3, General)*
+
+4. Leads to poor eating habits
+
+---
+
+**Q4** *(Set 3, Gap Fill)*
+
+4. Read the conversation below and complete the passage that follows : 2 1=2 Artist : When will the costumes arrive ? Manager : There is a slight delay but they will arrive today in the evening. The artist asked the manager (a) ___________ . The manager replied that (b) ___________ in the evening.
+
+---
+
+**Q5** *(Set 3, General)*
+
+5. The following paragraph has an error in each line with a blank. Write the correct and the incorrect option in the space provided. The first one has been done for you. 3 1=3 Incorrect Correct Fossil fuels are made for decomposing (e.g.) for from plants and animals. These fuels is found in (a) _________ _________ (b) _________ _________ hydrogen who can be burned for energy. (c) _________ _________
+
+---
+
+**Q3** *(Set 1, MCQ)*
+
+3. Complete any ten of the following twelve tasks, as directed. 10 1=10 (i) Fill in the blank by using the correct form of the word in the brackets, for the given portion of a letter. 1 Thank you for exceeding company expectations and __________ (inspire) your team with your spectacular work ethic. (ii) Read the given sentence from a movie review article. Identify the error and supply the correction in the sentence. 1 sequences. Use the given format for your response. Error Correction (iii) Akshat and Niharika had a conversation about the felicitation of Aksha 1 What will you be wearing for tomorrows function ? (iv) Fill in the blank by choosing the correct option, to complete the disclaimer given before a documentary film. 1 The film has been created by taking creative liberties and dramatizing the events __________ (about/for/on) cinematic expressions. 2/5/1-15 8 (v) Identify the error and supply the correction for the given sentence from a comment posted by an admirer of a reporter.
+
+---
+
+**Q4** *(Set 1, Long Answer)*
+
+4. Attempt any one from (a) and (b) given below : 5 (a) The problem of open manholes and drains in your locality is posing a threat to the lives of people. As a young citizen, who cares about the upkeep of the locality and safety of the residents, write a letter to the editor of a local daily, in about 120 words, expressing your concern at the situation and suggesting measures to resolve the problem and drawing attention of the concerned authorities. You are Sam/Karen of 67, Mist Apartments, Gagan Vihar, Akash Nagar. OR (b) As Rohini Monga / Rohan Monga, of 43 Jai Apartments, Neerbagh, you feel that there should be a dedicated space in the community park for the senior citizens of the society, where they can gather. Write a letter to the RWA of your society in about 120 words, suggesting spaces in the park and emphasizing the importance of creating such a space.
+
+---
+
+**Q5** *(Set 1, Long Answer)*
+
+5. Attempt any one from (a) and (b) given below : 5 (a) The detailed global millets production data from different countries is depicted in the pie chart given below. Analyze this chart and write an analytical paragraph in about 120 words, by selecting features that support your analysis and suggesting possible reasons for the variation in production by different countries. Global Millet Production Statistics (FAO 2018) For Visually Impaired Candidates only in lieu of Q. No. 5 (a) : ortance of Tree Planta . Using your own ideas and the information given below, write the paragraph in about 120 words. 5 One of the best activities make planet greener, healthier to develop biodiversity ensure supply of oxygen for coming generations add to natural beauty NGOs can be involved for plantation drive. OR 2/5/1-15 12 (b) There are many benefits of healthy eating for adults as well as children. The following charts reflect the same. Based on the information given in the charts, write an analytical
+
+---
+
+**Q3** *(Set 2, MCQ)*
+
+3. Complete any ten of the following twelve tasks, as directed. 10 1=10 (i) Fill in the blank by using the correct form of the word in the brackets, for the given portion of a letter. 1 Dear Mr. Sanjay, I am writing this letter to officially inform you that the management has ___________ (approve) the request submitted by you for a business trip to Germany. (ii) Read the given sentence from a book review article. 1 Identify the error and supply the correction in the sentence. pulls you in and make you fall in love with the characters ? Use the given format for your response. Error Correction (iii) Tanmay and Sonia had a conversation about their summer vacation plans. 1 Where are you planning to go this summer vacation ? (iv) Fill in the blank by choosing the correct option, to complete the warning given before a YouTube video. 1 Any props used in this video that show resemblance to __________ (some/many/any) illegal materials are merely props and should not be taken seriously. Do not t
+
+---
+
+**Q4** *(Set 2, Long Answer)*
+
+4. Attempt any one from (a) and (b) given below : 5 (a) The household water supply in your locality is muddy and not fit for drinking. Despite several complaint letters to the civic authorities, the problem is still unresolved. Write a letter to the editor of a local daily, in about 120 words, expressing your concern at the situation and suggesting measures to resolve the problem and drawing attention of the concerned authorities. You are Somil / Soumya of 768, Silver Apartments, Ajitha Vihar, Karampeeth. OR (b) As Geetanjali / Girish of 83, Star Apartments, Virbagh, you have noticed that a lot of senior citizens in your society are leading lonely lives. Write a letter in about 120 words, to the President of RWA of your society, requesting him to organize more community get-togethers and celebrations to bring cheer to their lonely lives.
+
+---
+
+**Q5** *(Set 2, Long Answer)*
+
+5. Attempt any one from (a) and (b) given below : 5 (a) E-commerce business for shopping picked up manifold during the pandemic year and consumers have continued to shop online. Given below is a chart that depicts the various trends associated with E-commerce shopping. Analyze this chart and write an analytical paragraph in about 120 words, by selecting features that support your analysis. 2/5/2-15 12 For Visually Impaired Candidates only in lieu of Q. No. 5 (a) : E-commerce business for shopping picked up manifold during the pandemic year and consumers have continued to shop online. Based on the information given below, write an analytical paragraph in about 120 words, by selecting features that support your analysis. Modes of shopping Products purchased online E-com websites/apps 49% Groceries, essentials 69% Local retailers offering home Medium-value items 54% delivery 18% Malls, markets 31% High-value items 32% 2% OR (b) There are two types of bottles available in the market : glas
+
+---
+
+**Q3** *(Set 3, MCQ)*
+
+3. Complete any ten of the following twelve tasks as directed. 10 1=10 (i) Fill in the blank by using the correct form of the word in the brackets, for the given portion of a letter. 1 I am also enclosing documents ___________ (mention) our terms and conditions with this letter. Please go through the same and if you have any doubts regarding that, please feel free to call or meet me personally. (ii) Read the given sentence from a book review article. 1 Identify the error and supply the correction in the sentence. Its flexible to ferry up to seven adults made the Banana Boat hugely appealing. Use the given format for your response. Error Correction (iii) Mihika and Nitesh had a conversation about a shopping mall they recently visited. 1 Do you remember that cafe where we had a croissant ? (iv) Fill in the blank by choosing the correct option, to complete the part of a notice on the school notice board. 1 Students who want to participate in the Annual Day ___________ (could/may/should) r
+
+---
+
+**Q4** *(Set 3, Long Answer)*
+
+4. Attempt any one from (a) and (b) given below : 5 (a) The roads in your locality have developed big potholes after the rains and have not been repaired. Despite several complaint letters to the civic authorities, the problem is still unresolved. Write a letter to the editor of a local daily, in about 120 words, expressing your concern at the situation and suggesting measures to resolve the problem and drawing attention of the concerned authorities. You are Maasumi / Mausan of 17, Crown Apartments, Harsh Vihar, Akash Nagar. OR (b) As Jignesh Silva / Punkhuri Shukl of 648, Sec-19, Sadar Nagar, you feel very unhappy and annoyed with the way bikes and cars are haphazardly parked in front of residential units causing inconvenience to residents. Write a letter to the RWA of your society in about 120 words, expressing your concern at the situation and suggesting measures to remove the nuisance.
+
+---
+
+**Q5** *(Set 3, Long Answer)*
+
+5. Attempt any one from (a) and (b) given below : 5 (a) Many Indian students go abroad for higher studies. The following graph shows the most popular fields of study for Indian students studying abroad in the academic year 2020 21. Analyze the graph and write an analytical paragraph, in about 120 words, by selecting features that support your analysis. OR 2/5/3-15 12 (b) Many out-of-school children are employed in various odd jobs in India. Child labour deprives children of their right to go to school and reinforces intergenerational cycles of poverty. Based on the data given below in the pie chart, write an analytical paragraph, in about 120 words, analyzing the situation and probable reasons that lead children to become a part of the child labour force. For the Visually Impaired Candidates only in lieu of Q. No. 5 (b) : Many out-of-school children are employed in various odd jobs in India. Child labour deprives children of their right to go to school and reinforces intergenerational 
+
+---
+
+**Q1** *(Set 3, General)*
+
+1. bottles collection 46%
+
+---
+
+**Q2** *(Set 3, General)*
+
+2. shoes polishing 20%
+
+---
+
+**Q3** *(Set 3, General)*
+
+3. car washing 12%
+
+---
+
+**Q4** *(Set 3, General)*
+
+4. cleaning 7%
+
+---
+
+**Q5** *(Set 3, General)*
+
+5. dishwashing 7%
+
+---
+
+**Q6** *(Set 3, General)*
+
+6. selling and wood collection 7%
+
+---
+
+**Q7** *(Set 3, General)*
+
+7. begging 1%
+
+---
+
+### Year: Compartment
+
+**Q3** *(Set 1, MCQ)*
+
+3. Attempt any ten of the following twelve questions : 10 1=10 (i) Fill in the blank by choosing the correct option. His offence was grave but he ________ with a fine. (a) got back (b) got through (c) got over (d) got off (ii) Read the conversation between Ria and her mother. Complete the Mother : Ria, you went to the market. Is it crowded ? Ria : The market is always crowded with people. In response to the question about the market, Ria replied that ___________. (iii) Select the correct option to fill in the blank for the given line. With your cooperation, we __________ win the match. (a) must (b) ought (c) (d) might (iv) Select the option that identifies the error and supplies the correction for the following line : Nearly all the sports practised nowadays is competitive. Option No. Error Correction (a) Nearly Really (b) practised practices (c) is are (d) competitive comparable (v) Complete the given narrative by filling in the blank with the correct option : When he _______ is not k
+
+---
+
+**Q4** *(Set 1, Long Answer)*
+
+4. Attempt any one from (A) and (B) given below : 5 (A) You are Sudha/Santosh staying in Payal Bagh. Your house is facing the local market and the main road. Consequently there are a large number of children and adults begging in the market and the red light. Since there are a lot of eateries in the market, it is painful to see children of all ages begging. Write a letter in about 100 120 words to the editor of a national daily drawing attention to this problem. Express your concern regarding children not going to school, taking drugs and indulging in petty crime. OR (B) The recent monsoon has left behind a trail of woes from potholes to blocked sewage and outbreak of malaria and dengue. This has not happened for the first time and residents have repeatedly complained about the issue. The bad roads and traffic jams are additional problems. Write a letter in about 100 120 words to the Commissioner, Public Works Department, drawing attention to the problems which seem to have become an a
+
+---
+
+**Q5** *(Set 1, Long Answer)*
+
+5. Attempt any one from (A) and (B) given below : 5 (A) The bar graph given here, depicts the adult literacy rate in two states of India. Write an analytical paragraph in 100 120 words drawing comparison between the two and write possible reasons for this difference. For the Visually Impaired Candidates only in lieu of Q. No. 5 (A) : iteracy rate directly impacts the development of a state. Write an analytical paragraph of about 100 120 words on the above statement. OR 2/C/1 12 (B) On the basis of the given bar graph, by analysing and carefully understanding the data, write an analytical paragraph. A survey conducted about the use of Internet by the students shows that the students are using the Internet more than they did earlier. The graph depicts for what purposes the Internet is being used. Write an analytical paragraph drawing a comparison in 100 120 words. For the Visually Impaired Candidates only in lieu of Q. No. 5 (B) : The table below contains information about air pollution,
+
+---
+
+**Q3** *(Set 2, MCQ)*
+
+3. Attempt any ten of the following twelve questions : 10 1=10 (i) Fill in the blank by choosing the correct option. She ________ in the middle of his speech. (a) broke down (b) broke with (c) broke (d) broke out (ii) Read the conversation between Alok and Mohit and complete the Alok : Why did you get into a fight with Manu ? Mohit : Manu made some offensive allegations. Alok enquired of Mohit why he had got into a fight with Manu. Mohit replied that ________. (iii) Select the correct option to fill in the blank for the given line. There _______ be an accident at any time on this bridge. (a) will (b) must (c) could (d) shall (iv) Select the option that identifies the error and supplies the correction for the following line : World leaders should work to establish peace of the world so that human and economic resources could be used to meet the pressing demands of mankind. Option No. Error Correction (a) of in (b) so that although (c) could shall (d) meet met (v) Complete the given narr
+
+---
+
+**Q4** *(Set 2, Long Answer)*
+
+4. Attempt any one from (A) and (B) given below : 5 (A) In the recent years, Indian athletes have started to perform well in the international arena. To encourage sportsmen, it is important that the Government set up training institutes, better infrastructure, and award schemes to promote a sports culture amongst the youth today. You are Sarit/Sarita. Write a letter to the editor of a national daily in 100 120 words expressing your views on the Governments role in making India a sporting nation. OR (B) You are Vinni/Vicky. In your colony, the residents park their cars and scooters in a disorderly manner. In addition, outsiders too come and park their vehicles. This leads to traffic jams and frequent incidents of rage and violence. Write a letter in about 100 120 words to the President of the RWA to increase security at the gates to prevent outside vehicles from parking, give parking stickers and appeal to the residents to maintain civil behaviour. 2/C/2 12
+
+---
+
+**Q5** *(Set 2, Long Answer)*
+
+5. Attempt any one from (A) and (B) given below : 5 (A) Negligent disposal of single-use plastic bags leads to choked drains. Single-use plastic is non-biodegradable and causes dangerous substances to leach into the water and soil. It should be banned completely. Write an analytical paragraph in 100 120 words on the above given input. OR (B) The following table shows details about the different Internet activities for six categories of people according to different age groups. Study the table and write an analytical paragraph in about 100 120 words, drawing comparisons between the different purposes. Use the given input. Internet Activities by Age Group Age group Activity % Teens 20s 30s 40s 50s 60s 70+ Get News 76 73 76 75 71 74 70 Online games 81 54 37 29 25 25 32 Downloads 52 46 27 15 13 8 6 Product research 0 79 80 83 79 74 70 Buying a product 43 68 69 68 67 65 41 Searching for people 5 31 23 23 24 29 27
+
+---
+
+**Q3** *(Set 3, MCQ)*
+
+3. Attempt any ten of the following twelve questions : 10 1=10 (i) Fill in the blank by choosing the correct option to complete the Social Service Club notice. Children ____________ volunteer for an hour a week to spend time with the elderly. (a) must (b) used to (c) ought to (d) will (ii) Read the conversation between the Cobbler and Rohit and complete the sentence by reporting the reply correctly. Cobbler : Does this shoe hurt when you walk ? Rohit : Yes, my left shoe pinches my toes. The Cobbler was trying to find out whether Rohit was uncomfortable in his shoes and asked whether they hurt him while he walked, to which Rohit replied _____________. (iii) Select the correct option to fill in the blank for the given line from a diary entry. When I was ten years old, I _________ speak three languages. (a) would (b) could (c) ought to (d) will (iv) Select the option that identifies the error and supplies the correction for the following line from a news report : The winning athletes were
+
+---
+
+**Q4** *(Set 3, Long Answer)*
+
+4. Attempt any one from (A) and (B) given below : 5 (A) You are Ruchita/Ruchit. Write a letter in about 100 120 words to the editor of a leading daily, voicing your concern about the increasing cost of living, rise in prices of daily edible items and other products. The common man whose earning does not increase correspondingly is hit hard in these circumstances and even resorts to desperate measures. There is an increase in unemployment and petty crime. OR (B) Your school is organising an inter-school cricket tournament. You had placed an order of cricket equipment for your team. However, when the items arrived they were not as per the order placed. The cricket bats were of inferior quality and the gloves and balls, of a different company. Write a letter in 100 120 words to the Manager of Sporting World informing him of the mistake.
+
+---
+
+**Q5** *(Set 3, Long Answer)*
+
+5. Attempt any one from (A) and (B) given below : 5 (A) The bar graph given here, depicts the adult literacy rate in two states of India. Write an analytical paragraph in 100 120 words drawing comparison between the two and write possible reasons for this difference. For the Visually Impaired Candidates only in lieu of Q. No. 5 (A) : . Write an analytical paragraph of about 100 120 words on the above statement. OR 2/C/3 12 (B) On the basis of the given bar graph, by analysing and carefully understanding the data, write an analytical paragraph. A survey conducted about the use of Internet by the students shows that the students are using the Internet more than they did earlier. The graph depicts for what purposes the Internet is being used. Write an analytical paragraph drawing a comparison in 100 120 words. For the Visually Impaired Candidates only in lieu of Q. No. 5 (B) : The table below contains information about air pollution, its impact and effect on the environment. Study the inf
+
+---
+
+## Literature
+
+### Year: 2022
+
+**Q6** *(Set 1, Short Answer)*
+
+6. Answer any six questions in 30 40 words each : 6 2=12 (i) How, according to Buddha, can one obtain peace of mind ? (The Sermon at Benares) (ii) ! Amanda ? (iii) animals. Justify. (iv) Write a brief character sketch of Lomov. (The Proposal) (v) What are the essential qualities for becoming a scientist, according to Ebri (The Making of a Scientist) (vi) Describe the feelings of the young lawyer when he came to know the reality of the hack driver. (vii) What attracts visitors to Coorg ? (Glimpses of India)
+
+---
+
+**Q7** *(Set 1, Long Answer)*
+
+7. Answer any two of the following in about 120 words each : 2 4=8 (i) Matilda realised that one little act of negligence can lead to total ruin. What do you learn from this and how would you move on in life ? (The Necklace) (ii) Imagine you are Bholi and you have been invited to give a speech on the importance of girl Girl Education and Empowerment. (iii) Valli was a mature girl and ahead of her age. Justify the statement with evidence from the text. (Madam Rides the Bus)
+
+---
+
+**Q6** *(Set 1, MCQ)*
+
+6. Read the following extracts and answer the questions for any one of the given two, (a) or (b) : 5 (a) Not a leaf remained on the trees. The corn was totally destroyed. The flowers were gone from the plants. Lencho’s soul was filled with sadness. When the storm had passed, he stood in the middle of the field and said to his sons, ‘‘A plague of locusts would have left more than this. The hail has left nothing. This year we will have no corn.’’ That night was a sorrowful one. ‘‘All our work, for nothing.’’ ‘‘There’s no one who can help us.’’ ‘‘We’ll all go hungry this year.’’ (A Letter to God) (i) Why were there no leaves left on the trees ? 1 (A) The locusts ate them up. (B) An earthquake had occurred. (C) There was a hailstorm. (D) The animals grazed on them. (ii) Fill in the blank with the correct word from the brackets. Lencho felt __________ (jubilant/devastated) when he saw his destroyed corn fields. 1 (iii) When Lencho says, ‘‘All our work, for nothing,’’ what does he refer to ?
+
+---
+
+**Q7** *(Set 1, Gap Fill)*
+
+7. Read the following extracts and answer the questions for any one of the given two, (a) or (b) : 5 (a) ‘‘I heard an old religious man But yesternight declare That he had found a text to prove That only God, my dear, Could love you for yourself alone And not your yellow hair.’’ (For Anne Gregory) (i) Complete the sentence appropriately : 1 The speaker addresses the person he is speaking to as ‘‘my dear’’ because ___________. (ii) The poet mentions ‘‘yellow hair’’. What is its significance in the context of the statement ? Answer in about 40 words. 2 (iii) Fill in the blank with the correct word from the brackets. 1 The poet suggests that God’s love in comparison to that of a human being is ____________ (selfish/selfless). (iv) As per the above extract, what attributes does God not love a person for ? Select the correct option. 1
+
+---
+
+**Q1** *(Set 1, General)*
+
+1. Wealth 2. Physical appearance
+
+---
+
+**Q3** *(Set 1, General)*
+
+3. Intelligence 4. Inner qualities
+
+---
+
+**Q5** *(Set 1, MCQ)*
+
+5. Youth (A) 1 and 4 (B) 3, 4, and 5 (C) 2 and 4 (D) Only 4 OR (b) He stalks in his vivid stripes The few steps of his cage, On pads of velvet quiet, In his quiet rage. He should be lurking in shadow, Sliding through long grass (A Tiger in the Zoo) (i) Identify and name any one figure of speech in the above extract. 2 (ii) Fill in the blank with one word. 1 The tiger’s stalking on ‘pads of velvet’ suggests a movement that is ___________. (iii) Based on the given lines from the poem, which words would best describe the feelings of the tiger ? 1 (A) Calm and content (B) Both subdued and angry (C) Both frustrated and happy (D) Both angry and famished (iv) Select the option that applies the same rhyme scheme as the first four lines of the given extract. 1 (A) The people along the sand All turn and look one way They turn their back on the land They look at the sea all day (B) Along the sand, the people All turn and look one way They turn back on the sand They look at the sea all day (C) The
+
+---
+
+**Q8** *(Set 1, General)*
+
+8. Answer any four of the following five questions in 40 – 50 words each : 43=12 (i) Mandela in his speech says, ‘‘The policy of apartheid created a deep and lasting wound in my country and my people.’’ Explain the significance of the word ‘‘wound’’ as used by Mandela. (Nelson Mandela – Long Walk to Freedom) (ii) ‘Dust of Snow’, by Robert Frost is a poem about nature and simplicity. Elaborate. (iii) Explain the reasons for Rajvir’s excitement on seeing the plantation and Pranjol’s lack of enthusiasm. (Glimpses of India – Tea from Assam) (iv) Analyze how Wells employs humour, rhyme, and exaggerated traits to not only entertain, but also educate readers about various wild animals. Explain. (How to Tell Wild Animals) (v) Mijbil’s transportation to England was no less than a nightmare for the author. Justify the statement using incidents from the lesson. (Mijbil the Otter)
+
+---
+
+**Q9** *(Set 1, General)*
+
+9. Answer any two of the following three questions in 40 – 50 words each : 23=6 (i) Analyze how Herriot uses Tricki and Mrs. Pumphrey’s relationship to comment on societal attitudes towards pets and the responsibilities associated with their care. (A Triumph of Surgery) (ii) Today reading books is on the decline because of the prevalence of electronic media. Contrarily, earth is saved by a ‘Book’ in the chapter ‘‘The Book That Saved the Earth’’. Elaborate. (iii) Discuss the character development of Griffin, as he grapples with the repercussions of his actions and attempts to navigate a world, where his once extraordinary abilities have become a burden. (Footprints without Feet)
+
+---
+
+**Q10** *(Set 1, Long Answer)*
+
+10. Answer any one of the following two questions in 100 – 120 words : 6 (a) Amanda and Valli both represent a longing for freedom. Examine the above observation with reference to the two texts. (Amanda and Madam Rides the Bus) OR (b) In ‘The Ball Poem’’, Berryman explores the themes of loss, growing up, and transformation. Mandela also experienced loss of freedom and suffering along with his countrymen during his growing years on the basis of his race and colour. Compare and contrast the commonality of themes in both the texts. (The Ball Poem and Nelson Mandela – Long Walk to Freedom)
+
+---
+
+**Q11** *(Set 1, Long Answer)*
+
+11. Answer any one of the following two questions in 100 – 120 words : 6 (a) Horace ends up in prison only to regret that a man should not trust anyone blindly without finding out the truth. Do you think his own foolishness was responsible for his arrest ? Give a reasoned answer. (A Question of Trust) OR (b) Matilda’s character embodies the journey of change or progression throughout the story, encapsulating the transformations she endured as a consequence of her experiences, trials, and engagements with other characters. In the light of the above information, trace the transformation seen in Matilda’s character in the story. (The Necklace)
+
+---
+
+**Q6** *(Set 2, Short Answer)*
+
+6. Answer any six questions in 30 40 words each : 6 2=12 (i) How, according to Buddha, can one obtain peace of mind ? (The Sermon at Benares) (ii) ! ? (iii) shows his preference for living with animals. Justify. (iv) Write a brief character sketch of Lomov. (The Proposal) (v) What are the essential qualities for becoming a scientist, according to Ebri (vi) Describe the feelings of the young lawyer when he came to know the reality of the hack driver. (vii) What attracts visitors to Coorg ? (Glimpses of India)
+
+---
+
+**Q7** *(Set 2, Long Answer)*
+
+7. Answer any two of the following in about 100 120 words each : 2 4=8 (i) Write a brief character sketch of the hack driver. (ii) Imagine you are Bholi and you have been invited to give a speech on the importance of Girl Education and Empowerment. (iii) Valli was a mature girl and ahead of her age. Justify the statement with evidence from the text. (Madam Rides the Bus)
+
+---
+
+**Q6** *(Set 2, MCQ)*
+
+6. Read the following extracts and answer the questions for any one of the given two, (a) or (b) : 5 (a) Not a leaf remained on the trees. The corn was totally destroyed. The flowers were gone from the plants. Lencho’s soul was filled with sadness. When the storm had passed, he stood in the middle of the field and said to his sons, ‘‘A plague of locusts would have left more than this. The hail has left nothing. This year we will have no corn.’’ That night was a sorrowful one. ‘‘All our work, for nothing.’’ ‘‘There’s no one who can help us.’’ ‘‘We’ll all go hungry this year.’’ (A Letter to God) (i) Why were there no leaves left on the trees ? 1 (A) The locusts ate them up. (B) An earthquake had occurred. (C) There was a hailstorm. (D) The animals grazed on them. (ii) Fill in the blank with the correct word from the brackets. Lencho felt __________ (jubilant/devastated) when he saw his destroyed corn fields. 1 (iii) When Lencho says, ‘‘All our work, for nothing,’’ what does he refer to ?
+
+---
+
+**Q7** *(Set 2, Gap Fill)*
+
+7. Read the following extracts and answer the questions for any one of the given two, (a) or (b) : 5 (a) ‘‘I heard an old religious man But yesternight declare That he had found a text to prove That only God, my dear, Could love you for yourself alone And not your yellow hair.’’ (For Anne Gregory) (i) Complete the sentence appropriately : 1 The speaker addresses the person he is speaking to as ‘‘my dear’’ because ___________. (ii) The poet mentions ‘‘yellow hair’’. What is its significance in the context of the statement ? Answer in about 40 words. 2 (iii) Fill in the blank with the correct word from the brackets. 1 The poet suggests that God’s love in comparison to that of a human being is ____________ (selfish/selfless). (iv) As per the above extract, what attributes does God not love a person for ? Select the correct option. 1
+
+---
+
+**Q1** *(Set 2, General)*
+
+1. Wealth 2. Physical appearance
+
+---
+
+**Q3** *(Set 2, General)*
+
+3. Intelligence 4. Inner qualities
+
+---
+
+**Q5** *(Set 2, MCQ)*
+
+5. Youth (A) 1 and 4 (B) 3, 4, and 5 (C) 2 and 4 (D) Only 4 OR (b) He stalks in his vivid stripes The few steps of his cage, On pads of velvet quiet, In his quiet rage. He should be lurking in shadow, Sliding through long grass (A Tiger in the Zoo) (i) Identify and name any one figure of speech in the above extract. 2 (ii) Fill in the blank with one word. 1 The tiger’s stalking on ‘pads of velvet’ suggests a movement that is ___________. (iii) Based on the given lines from the poem, which words would best describe the feelings of the tiger ? 1 (A) Calm and content (B) Both subdued and angry (C) Both frustrated and happy (D) Both angry and famished (iv) Select the option that applies the same rhyme scheme as the first four lines of the given extract. 1 (A) The people along the sand All turn and look one way They turn their back on the land They look at the sea all day (B) Along the sand, the people All turn and look one way They turn back on the sand They look at the sea all day (C) The
+
+---
+
+**Q8** *(Set 2, General)*
+
+8. Answer any four of the following five questions in 40 – 50 words each : 43=12 (i) Why does the author use the phrase ‘‘that drove a law-abiding citizen to become a criminal’’ to describe Mandela ? (Nelson Mandela – Long Walk to Freedom) (ii) What happened to the poet when a dust of snow fell on him ? (Dust of Snow) (iii) How does the author support the view that the people of Coorg are possibly of Arabic descent ? (Glimpses of India – Coorg) (iv) Mention two points of difference between a Bengal tiger and an Asiatic lion. (How to Tell Wild Animals) (v) What efforts did the narrator make to get his mail from Europe ? (Mijbil the Otter)
+
+---
+
+**Q9** *(Set 2, General)*
+
+9. Answer any two of the following three questions in 40 – 50 words each : 23=6 (i) Analyze how Herriot uses Tricki and Mrs. Pumphrey’s relationship to comment on societal attitudes towards pets and the responsibilities associated with their care. (A Triumph of Surgery) (ii) Today reading books is on the decline because of the prevalence of electronic media. Contrarily, earth is saved by a ‘Book’ in the chapter ‘‘The Book That Saved the Earth’’. Elaborate. (iii) Discuss the character development of Griffin, as he grapples with the repercussions of his actions and attempts to navigate a world, where his once extraordinary abilities have become a burden. (Footprints without Feet)
+
+---
+
+**Q10** *(Set 2, Long Answer)*
+
+10. Answer any one of the following two questions in 100 – 120 words : 6 (a) Amanda and Valli both represent a longing for freedom. Examine the above observation with reference to the two texts. (Amanda and Madam Rides the Bus) OR (b) In ‘The Ball Poem’’, Berryman explores the themes of loss, growing up, and transformation. Mandela also experienced loss of freedom and suffering along with his countrymen during his growing years on the basis of his race and colour. Compare and contrast the commonality of themes in both the texts. (The Ball Poem and Nelson Mandela – Long Walk to Freedom)
+
+---
+
+**Q11** *(Set 2, Long Answer)*
+
+11. Answer any one of the following two questions in 100 – 120 words : 6 (a) How did the lady in red manage to outsmart and outmaneuver the other thief, Horace Danby, by robbing the safe without leaving a single fingerprint ? (A Question of Trust) OR (b) How did Mr. & Mrs. Loisel replace the lost necklace ? What kind of life did the Loisels lead thereafter ? (The Necklace)
+
+---
+
+**Q6** *(Set 3, Short Answer)*
+
+6. Answer any six questions in 30 40 words each : 6 2=12 (i) How, according to Buddha, can one obtain peace of mind ? (The Sermon at Benares) (ii) your shoulders Amanda ! ? (iii) animals. Justify. (iv) Write a brief character sketch of Lomov. (The Proposal) (v) What are the essential qualities for becoming a scientist, according to Ebri (vi) Describe the feelings of the young lawyer when he came to know the reality of the hack driver. (vii) What attracts visitors to Coorg ? (Glimpses of India)
+
+---
+
+**Q7** *(Set 3, Long Answer)*
+
+7. Answer any two of the following in about 100 120 words each : 2 4=8 (i) Write a brief character sketch of Natalya. (The Proposal) (ii) Imagine you are Bholi and you have been invited to give a speech on the importance of girl education. W Girl Education and Empowerment. (iii) Valli was a mature girl and ahead of her age. Justify the statement with evidence from the text. (Madam Rides the Bus)
+
+---
+
+**Q6** *(Set 3, MCQ)*
+
+6. Read the following extracts and answer the questions for any one of the given two, (a) or (b) : 5 (a) Not a leaf remained on the trees. The corn was totally destroyed. The flowers were gone from the plants. Lencho’s soul was filled with sadness. When the storm had passed, he stood in the middle of the field and said to his sons, ‘‘A plague of locusts would have left more than this. The hail has left nothing. This year we will have no corn.’’ That night was a sorrowful one. ‘‘All our work, for nothing.’’ ‘‘There’s no one who can help us.’’ ‘‘We’ll all go hungry this year.’’ (A Letter to God) (i) Why were there no leaves left on the trees ? 1 (A) The locusts ate them up. (B) An earthquake had occurred. (C) There was a hailstorm. (D) The animals grazed on them. (ii) Fill in the blank with the correct word from the brackets. Lencho felt __________ (jubilant/devastated) when he saw his destroyed corn fields. 1 (iii) When Lencho says, ‘‘All our work, for nothing,’’ what does he refer to ?
+
+---
+
+**Q7** *(Set 3, Gap Fill)*
+
+7. Read the following extracts and answer the questions for any one of the given two, (a) or (b) : 5 (a) ‘‘I heard an old religious man But yesternight declare That he had found a text to prove That only God, my dear, Could love you for yourself alone And not your yellow hair.’’ (For Anne Gregory) (i) Complete the sentence appropriately : 1 The speaker addresses the person he is speaking to as ‘‘my dear’’ because ___________. (ii) The poet mentions ‘‘yellow hair’’. What is its significance in the context of the statement ? Answer in about 40 words. 2 (iii) Fill in the blank with the correct word from the brackets. 1 The poet suggests that God’s love in comparison to that of a human being is ____________ (selfish/selfless). (iv) As per the above extract, what attributes does God not love a person for ? Select the correct option. 1
+
+---
+
+**Q1** *(Set 3, General)*
+
+1. Wealth 2. Physical appearance
+
+---
+
+**Q3** *(Set 3, General)*
+
+3. Intelligence 4. Inner qualities
+
+---
+
+**Q5** *(Set 3, MCQ)*
+
+5. Youth (A) 1 and 4 (B) 3, 4, and 5 (C) 2 and 4 (D) Only 4 OR (b) He stalks in his vivid stripes The few steps of his cage, On pads of velvet quiet, In his quiet rage. He should be lurking in shadow, Sliding through long grass (A Tiger in the Zoo) (i) Identify and name any one figure of speech in the above extract. 2 (ii) Fill in the blank with one word. 1 The tiger’s stalking on ‘pads of velvet’ suggests a movement that is ___________ . (iii) Based on the given lines from the poem, which words would best describe the feelings of the tiger ? 1 (A) Calm and content (B) Both subdued and angry (C) Both frustrated and happy (D) Both angry and famished (iv) Select the option that applies the same rhyme scheme as the first four lines of the given extract. 1 (A) The people along the sand All turn and look one way They turn their back on the land They look at the sea all day (B) Along the sand, the people All turn and look one way They turn back on the sand They look at the sea all day (C) Th
+
+---
+
+**Q8** *(Set 3, General)*
+
+8. Answer any four of the following five questions in 40 – 50 words each : 43=12 (i) Mijbil spent most of his time in play. Elaborate. (Mijbil the Otter) (ii) What according to Rajvir was the Indian legend about the origin of tea ? (Glimpses of India – Tea from Assam) (iii) How did Mandela learn the meaning of courage ? (Nelson Mandela – Long Walk to Freedom) (iv) Why is the term ‘bear hug’ ironical ? (How to Tell Wild Animals) (v) What changes the mood of the poet in the poem ‘Dust of Snow’ ?
+
+---
+
+**Q9** *(Set 3, General)*
+
+9. Answer any two of the following three questions in 40 – 50 words each : 23=6 (i) Analyze how Herriot uses Tricki and Mrs. Pumphrey’s relationship to comment on societal attitudes towards pets and the responsibilities associated with their care. (A Triumph of Surgery) (ii) Today reading books is on the decline because of the prevalence of electronic media. Contrarily, earth is saved by a ‘Book’ in the chapter ‘‘The Book That Saved the Earth’’. Elaborate. (iii) Discuss the character development of Griffin, as he grapples with the repercussions of his actions and attempts to navigate a world, where his once extraordinary abilities have become a burden. (Footprints without Feet)
+
+---
+
+**Q10** *(Set 3, Long Answer)*
+
+10. Answer any one of the following two questions in 100 – 120 words : 6 (a) Amanda and Valli both represent a longing for freedom. Examine the above observation with reference to the two texts. (Amanda and Madam Rides the Bus) OR (b) In ‘The Ball Poem’’, Berryman explores the themes of loss, growing up, and transformation. Mandela also experienced loss of freedom and suffering along with his countrymen during his growing years on the basis of his race and colour. Compare and contrast the commonality of themes in both the texts. (The Ball Poem and Nelson Mandela – Long Walk to Freedom)
+
+---
+
+**Q11** *(Set 3, Long Answer)*
+
+11. Answer any one of the following two questions in 100 – 120 words : 6 (a) What plan did Horace Danby make to rob the house at Shotover Grange ? (A Question of Trust) OR (b) Were the sacrifices made by the Loisels in vain ? Justify your answer with reference to the text. (The Necklace)
+
+---
+
+**Q6** *(Set 1, MCQ)*
+
+6. Read the following extracts and answer the questions for any one of the given two, (a) or (b) : 5 (a) He felt certain that his wings would never support him; so he bent his head and ran away back to the little hole under the ledge where he slept at night. Even when each of his brothers and his little sister, whose wings were far shorter than his own, ran to the brink, flapped their wings, and flew away, he failed to muster up courage to take that plunge which appeared to him so desperate. His father and mother had come around calling to him shrilly, upbraiding him, threatening to let him starve on his ledge unless he flew away. But for the life of him he could not move. (Two Stories about Flying – His First Flight) (i) State any one inference about the parents of the baby seagull from the given statement. 1 “His father and mother had come around calling to him shrilly, upbraiding him, threatening to let him starve on his ledge unless he flew away.” (ii) Where did the little seagull 
+
+---
+
+**Q7** *(Set 1, MCQ)*
+
+7. Read the following extracts and answer the questions for any one of the given two, (a) or (b) : 5 (a) Some say the world will end in fire Some say in ice. From what I’ve tasted of desire I hold with those who favour fire. (Fire and Ice) (i) The speaker offers evidence to support his preference for one theory over the other. Mention the evidence. 1 (ii) What is the prediction of the poet about how the world will come to an end ? Answer in about 40 words. 2 (iii) “Fire” and “Ice” are used in the poem as _______. 1 (A) similes (B) metaphors (C) repetition (D) oxymorons (iv) Comment on the overall mood of the extract. 1 OR (b) The leaves strain toward the glass small twigs stiff with exertion long-cramped boughs shuffling under the roof like newly discharged patients half-dazed, moving to the clinic doors. (The Trees) (i) How does the comparison between the boughs and newly discharged patients contribute to the theme or message of the poem ? Answer in about 40 words. 2 (ii) Complete the
+
+---
+
+**Q8** *(Set 1, General)*
+
+8. Answer any four of the following five questions in 40 – 50 words each : 43=12 (i) The transition from the apartheid system in South Africa to a new era of equality reflects broader historical trends in the struggle for human rights and social justice. Elaborate. (Nelson Mandela – Long Walk to Freedom) (ii) How does “The Ball Poem” by John Berryman explore the theme of loss and its profound impact on an individual’s emotional state and perception of the world ? (The Ball Poem) (iii) How does the description of the baker’s lifestyle in the past evoke a sense of nostalgia ? (Glimpses of India – A Baker from Goa) (iv) What role does each of Belinda’s pets play in the narrative ? Select any two of her pets. (The Tale of Custard the Dragon) (v) Valli found joy and fascination in the simple act of watching the bus pass through her village. What does this reveal about her perspective on life and her surroundings ? (Madam Rides the Bus)
+
+---
+
+**Q9** *(Set 1, General)*
+
+9. Answer any two of the following three questions in 40 – 50 words each : 23=6 (i) How did Ausable get rid of Max ? (The Midnight Visitor) (ii) Why does Mme Loisel hastily depart from the ball when her husband places a modest wrap on her shoulders ? (The Necklace) (iii) “In time you will be more learned than anyone else in the village. Then no one will ever be able to laugh at you.’’ What effect did her teacher’s words have on Bholi ? Elaborate. (Bholi)
+
+---
+
+**Q10** *(Set 1, Long Answer)*
+
+10. Answer any one of the following two questions in 100 – 120 words : 6 (a) Analyse and evaluate the role of faith in ‘A Letter to God’ and ‘The Sermon at Benares’. OR (b) Explore the contrasting images of the tiger in ‘A Tiger in the Zoo’ and the tiger in ‘How to Tell Wild Animals’.
+
+---
+
+**Q11** *(Set 1, Long Answer)*
+
+11. Answer any one of the following two questions in 100 – 120 words : 6 (a) Anil’s acceptance and forgiveness of the thief demonstrates empathy and generosity. Elaborate. (The Thief’s Story) OR (b) Trace the transformation of Richard Ebright from a young man with potential to a respected and accomplished scientist. (The Making of a Scientist)
+
+---
+
+**Q6** *(Set 2, MCQ)*
+
+6. Read the following extracts and answer the questions for any one of the given two, (a) or (b) : 5 (a) He felt certain that his wings would never support him; so he bent his head and ran away back to the little hole under the ledge where he slept at night. Even when each of his brothers and his little sister, whose wings were far shorter than his own, ran to the brink, flapped their wings, and flew away, he failed to muster up courage to take that plunge which appeared to him so desperate. His father and mother had come around calling to him shrilly, upbraiding him, threatening to let him starve on his ledge unless he flew away. But for the life of him he could not move. (Two Stories about Flying – His First Flight) (i) State any one inference about the parents of the baby seagull from the given statement. 1 “His father and mother had come around calling to him shrilly, upbraiding him, threatening to let him starve on his ledge unless he flew away.” (ii) Where did the little seagull 
+
+---
+
+**Q7** *(Set 2, MCQ)*
+
+7. Read the following extracts and answer the questions for any one of the given two, (a) or (b) : 5 (a) Some say the world will end in fire Some say in ice. From what I’ve tasted of desire I hold with those who favour fire. (Fire and Ice) (i) The speaker offers evidence to support his preference for one theory over the other. Mention the evidence. 1 (ii) What is the prediction of the poet about how the world will come to an end ? Answer in about 40 words. 2 (iii) “Fire” and “Ice” are used in the poem as _______. 1 (A) similes (B) metaphors (C) repetition (D) oxymorons (iv) Comment on the overall mood of the extract. 1 OR 2/2/2 (b) The leaves strain toward the glass small twigs stiff with exertion long-cramped boughs shuffling under the roof like newly discharged patients half-dazed, moving to the clinic doors. (The Trees) (i) How does the comparison between the boughs and newly discharged patients contribute to the theme or message of the poem ? Answer in about 40 words. 2 (ii) Comple
+
+---
+
+**Q8** *(Set 2, General)*
+
+8. Answer any four of the following five questions in 40 – 50 words each : 43=12 (i) How was Mij to be transported to England ? (Mijbil the Otter) (ii) Why did Anne think that paper has more patience than people ? (From the Diary of Anne Frank) (iii) How did the baker herald his arrival every morning ? (Glimpses of India – A Baker from Goa) (iv) Describe how the poem ‘The Trees’ brings out the conflict between man and nature. (v) How did Valli manage to gather information about the bus ride she was planning ? (Madam Rides the Bus) 2/2/2
+
+---
+
+**Q9** *(Set 2, General)*
+
+9. Answer any two of the following three questions in 40 – 50 words each : 23=6 (i) How did Ausable get rid of Max ? (The Midnight Visitor) (ii) Why does Mme Loisel hastily depart from the ball when her husband places a modest wrap on her shoulders ? (The Necklace) (iii) “In time you will be more learned than anyone else in the village. Then no one will ever be able to laugh at you.’’ What effect did her teacher’s words have on Bholi ? Elaborate. (Bholi)
+
+---
+
+**Q10** *(Set 2, Long Answer)*
+
+10. Answer any one of the following two questions in 100 – 120 words : 6 (a) Analyse and evaluate the role of faith in ‘A Letter to God’ and ‘The Sermon at Benares’. OR (b) Explore the contrasting images of the tiger in ‘A Tiger in the Zoo’ and the tiger in ‘How to Tell Wild Animals’.
+
+---
+
+**Q11** *(Set 2, Long Answer)*
+
+11. Answer any one of the following two questions in 100 – 120 words : 6 (a) ‘Brilliant scientist though he was, Griffin was rather a lawless person.’ Elaborate. (Footprints without Feet) OR (b) How and when did Hari Singh meet Anil ? Why did Hari Singh lie that he knew how to cook ? (The Thief’s Story) 2/2/2
+
+---
+
+**Q6** *(Set 3, MCQ)*
+
+6. Read the following extracts and answer the questions for any one of the given two, (a) or (b) : 5 (a) He felt certain that his wings would never support him; so he bent his head and ran away back to the little hole under the ledge where he slept at night. Even when each of his brothers and his little sister, whose wings were far shorter than his own, ran to the brink, flapped their wings, and flew away, he failed to muster up courage to take that plunge which appeared to him so desperate. His father and mother had come around calling to him shrilly, upbraiding him, threatening to let him starve on his ledge unless he flew away. But for the life of him he could not move. (Two Stories about Flying – His First Flight) (i) State any one inference about the parents of the baby seagull from the given statement. 1 “His father and mother had come around calling to him shrilly, upbraiding him, threatening to let him starve on his ledge unless he flew away.” (ii) Where did the little seagull 
+
+---
+
+**Q7** *(Set 3, MCQ)*
+
+7. Read the following extracts and answer the questions for any one of the given two, (a) or (b) : 5 (a) Some say the world will end in fire Some say in ice. From what I’ve tasted of desire I hold with those who favour fire. (Fire and Ice) (i) The speaker offers evidence to support his preference for one theory over the other. Mention the evidence. 1 (ii) What is the prediction of the poet about how the world will come to an end ? Answer in about 40 words. 2 (iii) “Fire” and “Ice” are used in the poem as _______. 1 (A) similes (B) metaphors (C) repetition (D) oxymorons (iv) Comment on the overall mood of the extract. 1 OR 2/2/3 (b) The leaves strain toward the glass small twigs stiff with exertion long-cramped boughs shuffling under the roof like newly discharged patients half-dazed, moving to the clinic doors. (The Trees) (i) How does the comparison between the boughs and newly discharged patients contribute to the theme or message of the poem ? Answer in about 40 words. 2 (ii) Comple
+
+---
+
+**Q8** *(Set 3, General)*
+
+8. Answer any four of the following five questions in 40 – 50 words each : 43=12 (i) What strategy did the mother adopt to teach the young seagull how to fly ? (Two Stories about Flying – His First Flight) (ii) Why does the tiger in the zoo ignore the visitors ? (A Tiger in the Zoo) (iii) Why is the baker very important to the village folk ? (Glimpses of India – A Baker from Goa) (iv) Why did the poet not console the grief-stricken boy when he lost the ball ? (The Ball Poem) (v) Saving money for the bus journey was not easy for Valli. Explain. (Madam Rides the Bus) 2/2/3
+
+---
+
+**Q9** *(Set 3, General)*
+
+9. Answer any two of the following three questions in 40 – 50 words each : 23=6 (i) How did Ausable get rid of Max ? (The Midnight Visitor) (ii) Why does Mme Loisel hastily depart from the ball when her husband places a modest wrap on her shoulders ? (The Necklace) (iii) “In time you will be more learned than anyone else in the village. Then no one will ever be able to laugh at you.’’ What effect did her teacher’s words have on Bholi ? Elaborate. (Bholi)
+
+---
+
+**Q10** *(Set 3, Long Answer)*
+
+10. Answer any one of the following two questions in 100 – 120 words : 6 (a) Analyse and evaluate the role of faith in ‘A Letter to God’ and ‘The Sermon at Benares’. OR (b) Explore the contrasting images of the tiger in ‘A Tiger in the Zoo’ and the tiger in ‘How to Tell Wild Animals’.
+
+---
+
+**Q11** *(Set 3, Long Answer)*
+
+11. Answer any one of the following two questions in 100 – 120 words : 6 (a) How did Anil bring about a change in Hari Singh ? (The Thief’s Story) OR (b) In what ways does Think-Tank misinterpret innocent nursery rhymes as threats to the Martians ? (The Book That Saved the Earth) 2/2/3
+
+---
+
+### Year: 2023
+
+**Q6** *(Set 1, Short Answer)*
+
+6. Answer any six questions in 30 40 words each : 6 2=12 (i) Grief is often seen as a measure of love. Justify your response to Buddhas sermon. (ii) How did the baker become synonymous with celebrations and occasions in Goa ? (Glimpses of India) (iii) she envisions. Give instances from the poem to justify. (iv) How would you describe Custard the Dragon ? (v) a companion to a child. Explain with reference to Richards mother. (The Making of a Scientist) (vi) How did the necklace change the life of Loisel ? (vii) Do you agree with the poet Walt Whitman perception of animal life. Justify. (Animals)
+
+---
+
+**Q7** *(Set 1, Long Answer)*
+
+7. Answer any two of the following in about 120 words each : 2 4=8 (i) a role- for village girls. Discuss. (ii) Valli was sensitive, but at the same time she was fearless and quite determined. Explain with reference to the text. (iii) Russian society emerges as an important character in the play, . Support your answer giving instances.
+
+---
+
+**Q6** *(Set 1, MCQ)*
+
+6. Read the following extracts and answer the questions for any one of the given two, (a) or (b) : 5 (a) The moon was coming up in the east, behind me, and stars were shining in the clear sky above me. There wasn’t a cloud in the sky. I was happy to be alone high up above the sleeping countryside. I was flying my old Dakota aeroplane over France back to England. I was dreaming of my holiday and looking forward to being with my family. I looked at my watch: one thirty in the morning. (Two Stories About Flying) (i) What time of the day is the above extract set in ? 1 (A) dawn (B) afternoon (C) night (D) dusk (ii) State any one inference about the writer from the given context. 1 “I was looking forward to being with my family.” (iii) Fill in the blank with the correct word from the brackets. The use of the phrase ‘clear sky’ adds to a sense of ___________ (favourable/flavourful) weather conditions. 1 (iv) How does the serene atmosphere described by the narrator contribute to the mood and 
+
+---
+
+**Q7** *(Set 1, MCQ)*
+
+7. Read the following extracts and answer the questions for any one of the given two, (a) or (b) : 5 (a) The way a crow Shook down on me The dust of snow From a hemlock tree Has given my heart A change of mood (Dust of Snow) (i) Fill the blank to complete the sentence. 1 Shaking down of dust of snow gave the speaker a change of heart by ___________. (ii) How does the interaction between the natural elements (crow, snow, hemlock tree) contribute to the speaker’s emotional transformation in the poem ? Answer in about 40 words. 2 (iii) ‘Dust of Snow’ is referred to as : 1 (A) mist (B) dust of branches (C) snow residue (D) snowflakes (iv) The crow and the hemlock tree represent ___________. 1
+
+---
+
+**Q1** *(Set 1, General)*
+
+1. sorrow 2. elation
+
+---
+
+**Q3** *(Set 1, General)*
+
+3. hope 4. anxiety
+
+---
+
+**Q5** *(Set 1, MCQ)*
+
+5. enthusiasm (A) 1 only (B) 2, 3 and 5 (C) 4 only (D) 1, 4 and 5 OR (b) Don’t bite your nails, Amanda! Don’t hunch your shoulders, Amanda! Stop that slouching and sit up straight, Amanda! (There is a languid, emerald sea, where the sole inhabitant is me — a mermaid, drifting blissfully.) (Amanda) (i) How does the poet reinforce the contrast between what the narrator wants and what Amanda desires ? 2 (ii) What tone is conveyed through the repetition of Amanda’s name in the line ? 1 (A) loving (B) instructive (C) indifferent (D) playful (iii) How does the imagery of the emerald sea with the mermaid contrast with Amanda’s actions ? 1 (iv) Select the option that applies the same rhyme scheme as the lines of the given extract. 1 (A) Sitting by the pond Waving my wand Awaiting my dearest I looked above and beyond Awaiting my love A sudden sound, fluttered the dove The crackle stopped, as so did my heart (B) Sitting by the pond Holding tight to my bond I looked above and beyond Awaiting my l
+
+---
+
+**Q8** *(Set 1, General)*
+
+8. Answer any four of the following five questions in 40 – 50 words each : 43=12 (i) The young seagull’s fear of flying and reluctance to leave his ledge contribute to the development of the theme of independence and courage in the story. Justify. (Two Stories about Flying) (ii) In what ways does the contrast between the tiger’s natural habitat and its confinement in a concrete cell enhance the poem’s exploration of captivity and its consequences for wild animals ? (A Tiger in the Zoo) (iii) The portrayal of the baker’s attire and role in the village emphasize the cultural and social significance of bread-making within the community. Elaborate. (Glimpses of India – A Baker from Goa) (iv) What happens to the house when the trees move out of it ? Comment. (The Trees) (v) How does Valli’s desire to ride the bus reflect her aspirations and challenges in context of her daily life ? (Madam Rides the Bus)
+
+---
+
+**Q9** *(Set 1, General)*
+
+9. Answer any two of the following three questions in 40 – 50 words each : 23=6 (i) How do Anil’s initial reaction to Hari Singh’s cooking and his subsequent actions reflect Anil’s evolving relationship with Hari Singh ? (The Thief’s Story) (ii) The unexpected encounter with the voice in the doorway affects Horace’s burglary attempt. Elaborate. (A Question of Trust) (iii) The play, ‘The Book that Saved the Earth’, uses humour and misunderstandings between the Martians and Earthlings to explore the themes of perception and cultural differences. Comment.
+
+---
+
+**Q10** *(Set 1, Long Answer)*
+
+10. Answer any one of the following two questions in 100 – 120 words : 6 (a) Comment on the reactions and feelings of Lencho and Nelson Mandela when they faced challenges in their lives. (A Letter to God and Nelson Mandela : Long Walk to Freedom) OR (b) Discuss how the writers use language to create humour in the poem ‘The Tale of Custard the Dragon’ and the play ‘The Proposal’.
+
+---
+
+**Q11** *(Set 1, Long Answer)*
+
+11. Answer any one of the following two questions in about 100 – 120 words : 6 (a) Discuss how Bholi evolves through the story. What are the qualities that contribute to her transformation from a timid girl to a confident young woman ? (Bholi) OR (b) Hari’s character evolves from being deceitful and opportunistic to remorseful and seeking redemption. In the light of the above information, describe how his decision to return the money signifies a moral awakening in him and a newfound appreciation for Anil’s kindness and mentorship. (The Thief’s Story)
+
+---
+
+**Q6** *(Set 2, Short Answer)*
+
+6. Answer any six questions in 30 40 words each : 6 2=12 (i) Grief is often seen as a measure of love. Justify your response to Buddhas sermon. (ii) How did the baker become synonymous with celebrations and occasions in Goa ? (Glimpses of India) (iii) she envisions. Give instances from the poem to justify. (iv) How would you describe Custard the Dragon ? (v) a companion to a child. Explain with reference to Richards mother. (The Making of a Scientist) (vi) How did the necklace change the life of Loisel ? (vii) Do you agree with the poet Wal life. Justify. (Animals)
+
+---
+
+**Q7** *(Set 2, Long Answer)*
+
+7. Answer any two of the following in about 120 words each : 2 4=8 (i) Describe how Olives Lutkins made a fool of the young driver. (The Hack Driver) (ii) Valli was sensitive, but at the same time she was fearless and quite determined. Explain with reference to the text. (iii) Russian society emerges as an important character in the play,
+
+---
+
+**Q6** *(Set 2, MCQ)*
+
+6. Read the following extracts and answer the questions for any one of the given two, (a) or (b) : 5 (a) The moon was coming up in the east, behind me, and stars were shining in the clear sky above me. There wasn’t a cloud in the sky. I was happy to be alone high up above the sleeping countryside. I was flying my old Dakota aeroplane over France back to England. I was dreaming of my holiday and looking forward to being with my family. I looked at my watch: one thirty in the morning. (Two Stories About Flying) (i) What time of the day is the above extract set in ? 1 (A) dawn (B) afternoon (C) night (D) dusk (ii) State any one inference about the writer from the given context. 1 “I was looking forward to being with my family.” (iii) Fill in the blank with the correct word from the brackets. The use of the phrase ‘clear sky’ adds to a sense of ___________ (favourable/flavourful) weather conditions. 1 (iv) How does the serene atmosphere described by the narrator contribute to the mood and 
+
+---
+
+**Q7** *(Set 2, MCQ)*
+
+7. Read the following extracts and answer the questions for any one of the given two, (a) or (b) : 5 (a) The way a crow Shook down on me The dust of snow From a hemlock tree Has given my heart A change of mood (Dust of Snow) (i) Fill the blank to complete the sentence. 1 Shaking down of dust of snow gave the speaker a change of heart by ___________. (ii) How does the interaction between the natural elements (crow, snow, hemlock tree) contribute to the speaker’s emotional transformation in the poem ? Answer in about 40 words. 2 (iii) ‘Dust of Snow’ is referred to as : 1 (A) mist (B) dust of branches (C) snow residue (D) snowflakes (iv) The crow and the hemlock tree represent ___________. 1
+
+---
+
+**Q1** *(Set 2, General)*
+
+1. sorrow 2. elation
+
+---
+
+**Q3** *(Set 2, General)*
+
+3. hope 4. anxiety
+
+---
+
+**Q5** *(Set 2, MCQ)*
+
+5. enthusiasm (A) 1 only (B) 2, 3 and 5 (C) 4 only (D) 1, 4 and 5 OR (b) Don’t bite your nails, Amanda! Don’t hunch your shoulders, Amanda! Stop that slouching and sit up straight, Amanda! (There is a languid, emerald sea, where the sole inhabitant is me — a mermaid, drifting blissfully.) (Amanda) (i) How does the poet reinforce the contrast between what the narrator wants and what Amanda desires ? 2 (ii) What tone is conveyed through the repetition of Amanda’s name in the line ? 1 (A) loving (B) instructive (C) indifferent (D) playful (iii) How does the imagery of the emerald sea with the mermaid contrast with Amanda’s actions ? 1 (iv) Select the option that applies the same rhyme scheme as the lines of the given extract. 1 (A) Sitting by the pond Waving my wand Awaiting my dearest I looked above and beyond Awaiting my love A sudden sound, fluttered the dove The crackle stopped, as so did my heart (B) Sitting by the pond Holding tight to my bond I looked above and beyond Awaiting my l
+
+---
+
+**Q8** *(Set 2, General)*
+
+8. Answer any four of the following five questions in about 40 – 50 words each : 43=12 (i) Valli did not board the bus impulsively. Justify. (Madam Rides the Bus) (ii) Describe the changing reactions of Ink, Blink and Mustard to Custard’s bravado. (The Tale of Custard the Dragon) (iii) Why, according to Mandela, was it important to learn to hate ? (Nelson Mandela : Long Walk to Freedom) (iv) Why does the author refer to Coorg as the kingdom of heaven ? (Glimpses of India – Coorg) (v) The loss of the ball is a lesson to the boy. Elaborate. (The Ball Poem)
+
+---
+
+**Q9** *(Set 2, General)*
+
+9. Answer any two of the following three questions in 40 – 50 words each : 23=6 (i) How do Anil’s initial reaction to Hari Singh’s cooking and his subsequent actions reflect Anil’s evolving relationship with Hari Singh ? (The Thief’s Story) (ii) The unexpected encounter with the voice in the doorway affects Horace’s burglary attempt. Elaborate. (A Question of Trust) (iii) The play, ‘The Book that Saved the Earth’, uses humour and misunderstandings between the Martians and Earthlings to explore the themes of perception and cultural differences. Comment.
+
+---
+
+**Q10** *(Set 2, Long Answer)*
+
+10. Answer any one of the following two questions in 100 – 120 words : 6 (a) Comment on the reactions and feelings of Lencho and Nelson Mandela when they faced challenges in their lives. (A Letter to God and Nelson Mandela : Long Walk to Freedom) OR (b) Discuss how the writers use language to create humour in the poem ‘The Tale of Custard the Dragon’ and the play ‘The Proposal’.
+
+---
+
+**Q11** *(Set 2, Long Answer)*
+
+11. Answer any one of the following two questions in about 100 – 120 words : 6 (a) How did Hari Singh meet Anil ? Why did Anil forgive Hari Singh and promise to pay him regularly ? (The Thief’s Story) OR (b) What was the role of Ebright’s mother in his life ? (The Making of a Scientist)
+
+---
+
+**Q6** *(Set 3, Short Answer)*
+
+6. Answer any six questions in 30 40 words each : 6 2=12 (i) Grief is often seen as a measure of love. Justify your response to Buddhas sermon. (ii) How did the baker become synonymous with celebrations and occasions in Goa ? (Glimpses of India) (iii) she envisions. Give instances from the poem to justify. (iv) How would you describe Custard the Dragon ? (v) a companion to a child. Explain with reference to Richards mother. (The Making of a Scientist) (vi) How did the necklace change the life of Loisel ? (vii) life. Justify. (Animals)
+
+---
+
+**Q7** *(Set 3, Long Answer)*
+
+7. Answer any two of the following in about 120 words each : 2 4=8 (i) a role- for village girls. Discuss. (ii) Valli was sensitive, but at the same time she was fearless and quite determined. Explain with reference to the text. (iii) Write a character sketch of Lomov. (The Proposal)
+
+---
+
+**Q6** *(Set 3, MCQ)*
+
+6. Read the following extracts and answer the questions for any one of the given two, (a) or (b) : 5 (a) The moon was coming up in the east, behind me, and stars were shining in the clear sky above me. There wasn’t a cloud in the sky. I was happy to be alone high up above the sleeping countryside. I was flying my old Dakota aeroplane over France back to England. I was dreaming of my holiday and looking forward to being with my family. I looked at my watch: one thirty in the morning. (Two Stories About Flying) (i) What time of the day is the above extract set in ? 1 (A) dawn (B) afternoon (C) night (D) dusk (ii) State any one inference about the writer from the given context. 1 “I was looking forward to being with my family.” (iii) Fill in the blank with the correct word from the brackets. The use of the phrase ‘clear sky’ adds to a sense of ___________ (favourable/flavourful) weather conditions. 1 (iv) How does the serene atmosphere described by the narrator contribute to the mood and 
+
+---
+
+**Q7** *(Set 3, MCQ)*
+
+7. Read the following extracts and answer the questions for any one of the given two, (a) or (b) : 5 (a) The way a crow Shook down on me The dust of snow From a hemlock tree Has given my heart A change of mood (Dust of Snow) (i) Fill the blank to complete the sentence. 1 Shaking down of dust of snow gave the speaker a change of heart by ___________. (ii) How does the interaction between the natural elements (crow, snow, hemlock tree) contribute to the speaker’s emotional transformation in the poem ? Answer in about 40 words. 2 (iii) ‘Dust of Snow’ is referred to as : 1 (A) mist (B) dust of branches (C) snow residue (D) snowflakes (iv) The crow and the hemlock tree represent ___________. 1
+
+---
+
+**Q1** *(Set 3, General)*
+
+1. sorrow 2. elation
+
+---
+
+**Q3** *(Set 3, General)*
+
+3. hope 4. anxiety
+
+---
+
+**Q5** *(Set 3, MCQ)*
+
+5. enthusiasm (A) 1 only (B) 2, 3 and 5 (C) 4 only (D) 1, 4 and 5 OR (b) Don’t bite your nails, Amanda! Don’t hunch your shoulders, Amanda! Stop that slouching and sit up straight, Amanda! (There is a languid, emerald sea, where the sole inhabitant is me — a mermaid, drifting blissfully.) (Amanda) (i) How does the poet reinforce the contrast between what the narrator wants and what Amanda desires ? 2 (ii) What tone is conveyed through the repetition of Amanda’s name in the line ? 1 (A) loving (B) instructive (C) indifferent (D) playful (iii) How does the imagery of the emerald sea with the mermaid contrast with Amanda’s actions ? 1 (iv) Select the option that applies the same rhyme scheme as the lines of the given extract. 1 (A) Sitting by the pond Waving my wand Awaiting my dearest I looked above and beyond Awaiting my love A sudden sound, fluttered the dove The crackle stopped, as so did my heart (B) Sitting by the pond Holding tight to my bond I looked above and beyond Awaiting my l
+
+---
+
+**Q8** *(Set 3, General)*
+
+8. Answer any four of the following five questions in about 40 – 50 words each : 43=12 (i) Why was Valli’s excitement on the bus dampened on her return journey ? (Madam Rides the Bus) (ii) Why does Custard long for a nice safe cage ? (The Tale of Custard the Dragon) (iii) Why did Mandela feel that liberation was important for both, the oppressor and the oppressed ? (Nelson Mandela : Long Walk to Freedom) (iv) Mention any three surprises that await visitors in Coorg. (Glimpses of India – Coorg) (v) What does the poet mean by the phrase ‘And no one buys a ball back’ ? (The Ball Poem)
+
+---
+
+**Q9** *(Set 3, General)*
+
+9. Answer any two of the following three questions in 40 – 50 words each : 23=6 (i) How do Anil’s initial reaction to Hari Singh’s cooking and his subsequent actions reflect Anil’s evolving relationship with Hari Singh ? (The Thief’s Story) (ii) The unexpected encounter with the voice in the doorway affects Horace’s burglary attempt. Elaborate. (A Question of Trust) (iii) The play, ‘The Book that Saved the Earth’, uses humour and misunderstandings between the Martians and Earthlings to explore the themes of perception and cultural differences. Comment.
+
+---
+
+**Q10** *(Set 3, Long Answer)*
+
+10. Answer any one of the following two questions in 100 – 120 words : 6 (a) Comment on the reactions and feelings of Lencho and Nelson Mandela when they faced challenges in their lives. (A Letter to God and Nelson Mandela : Long Walk to Freedom) OR (b) Discuss how the writers use language to create humour in the poem ‘The Tale of Custard the Dragon’ and the play ‘The Proposal’.
+
+---
+
+**Q11** *(Set 3, Long Answer)*
+
+11. Answer any one of the following two questions in about 100 – 120 words : 6 (a) Why did Hari Singh choose to go back to Anil in the end ? (The Thief’s Story) OR (b) What book opened the world of science to the eager Richard Ebright ? Why and where did Ebright send the tagged butterflies ? (The Making of a Scientist)
+
+---
+
+### Year: 2023 (Supplementary)
+
+**Q6** *(Set 1, MCQ)*
+
+6. Read the following extracts and answer the questions for any one of the given two, (a) or (b) : 5 (a) NOODLE : (bowing) O Great and Mighty Think-Tank, most powerful and intelligent creature in the whole universe, what are your orders ? THINK-TANK : (peevishly) You left out part of my salutation, Apprentice Noodle. Go over the whole thing again. (The Book That Saved the Earth) (i) According to the extract, Noodle is a ________ to Think-Tank. 1 Select the correct option : (A) carpenter (B) subordinate (C) master (D) friend (ii) What does the above extract reveal about the character of Think-Tank ? 2 (iii) Fill in the blank with the correct word from the brackets. 1 The use of the word ‘peevishly’ suggests that Think-Tank was feeling __________ (elated/annoyed). (iv) How does Noodle describe Think-Tank in his salutation ? 1 OR (b) NATALYA : Forgive us, Ivan Vassilevitch, we were all a little heated. I remember now: Oxen Meadows... really are yours. LOMOV : My heart’s beating awfully. M
+
+---
+
+**Q7** *(Set 1, MCQ)*
+
+7. Read the following extracts and answer the questions for any one of the given two, (a) or (b) : 5 (a) The trees inside are moving out into the forest, the forest that was empty all these days where no bird could sit no insect hide no sun bury its feet in shadow (The Trees) (i) Where are the trees moving out from ? 1 (ii) How does the author’s use of descriptive language enhance the impact on the reader ? 1 (iii) Complete the following suitably : The emptiness of the forest is highlighted by __________. 1 (iv) Explain the phrase “no sun bury its feet” with reference to the extract. 2 OR (b) Belinda embraced him, Mustard licked him, No one mourned for his pirate victim. Ink and Blink in glee did gyrate Around the dragon that ate the pirate. (The Tale of Custard the Dragon) (i) Complete the following suitably : 1 Belinda’s and Mustard’s reaction reflected a sense of _________. (ii) ‘Embraced’ in this context means : 1 (A) to accept (B) to feel awkward and sheepish (C) to put your arms 
+
+---
+
+**Q8** *(Set 1, General)*
+
+8. Answer any four of the following five questions in 40 – 50 words each : 4´3=12 (i) How does Frost in his poem “Fire and Ice” use symbolism to explore the destructive forces of desire and hatred ? (ii) Discuss, with examples from the text, the role of the baker in shaping the memories and experiences of the people in Goa. (Glimpses of India) (iii) In the poem “For Anne Gregory”, how does the poet challenge or conform to the traditional notions of beauty and love ? (iv) How does Mijbil’s incident with the bathroom tap help shape the understanding of his character ? (Mijbil the Otter) (v) In what way does ‘Anne Frank’s Diary’ reflect the theme of isolation ? (From the Diary of Anne Frank)
+
+---
+
+**Q9** *(Set 1, General)*
+
+9. Answer any two of the following three questions in 40 – 50 words each : 2´3=6 (i) What role does Tricki’s immediate environment play in ‘‘A Triumph of Surgery’’ ? (ii) Why does Griffin in “Footprints without Feet” flee from the store in London ? (iii) M. Loisel is a caring and considerate husband. Support the statement with evidence from the text. (The Necklace) 2/S/1
+
+---
+
+**Q10** *(Set 1, Long Answer)*
+
+10. Answer any one of the following two questions in 100 – 120 words : 6 (a) What challenges do Siddhartha in ‘The Sermon at Benares’ and Valliammai in ‘Madam Rides the Bus’ face ? How do their journeys reflect on the themes of human experience and self-realisation ? OR (b) The protagonist in ‘The Ball Poem’ and the young seagull in ‘His First Flight’ face challenges. Discuss with reference to the two texts.
+
+---
+
+**Q11** *(Set 1, Long Answer)*
+
+11. Answer any one of the following two questions in 100 – 120 words : 6 (a) ‘The devil is in the details’ captures the power of unexamined details and how it results in unforeseen difficulties. Discuss the statement in context to “The Midnight Visitor”. OR (b) The chapter ‘Bholi’ enables the readers to question values and customs prevailing in society. With reference to the text, discuss the above statement. 2/S/1
+
+---
+
+**Q6** *(Set 2, MCQ)*
+
+6. Read the following extracts and answer the questions for any one of the given two, (a) or (b) : 5 (a) NOODLE : (bowing) O Great and Mighty Think-Tank, most powerful and intelligent creature in the whole universe, what are your orders ? THINK-TANK : (peevishly) You left out part of my salutation, Apprentice Noodle. Go over the whole thing again. (The Book That Saved the Earth) (i) According to the extract, Noodle is a ________ to Think-Tank. 1 Select the correct option : (A) carpenter (B) subordinate (C) master (D) friend (ii) What does the above extract reveal about the character of Think-Tank ? 2 (iii) Fill in the blank with the correct word from the brackets. 1 The use of the word ‘peevishly’ suggests that Think-Tank was feeling __________ (elated/annoyed). (iv) How does Noodle describe Think-Tank in his salutation ? 1 OR (b) NATALYA : Forgive us, Ivan Vassilevitch, we were all a little heated. I remember now: Oxen Meadows... really are yours. LOMOV : My heart’s beating awfully. M
+
+---
+
+**Q7** *(Set 2, MCQ)*
+
+7. Read the following extracts and answer the questions for any one of the given two, (a) or (b) : 5 (a) The trees inside are moving out into the forest, the forest that was empty all these days where no bird could sit no insect hide no sun bury its feet in shadow (The Trees) (i) Where are the trees moving out from ? 1 (ii) How does the author’s use of descriptive language enhance the impact on the reader ? 1 (iii) Complete the following suitably : The emptiness of the forest is highlighted by __________. 1 (iv) Explain the phrase “no sun bury its feet” with reference to the extract. 2 OR (b) Belinda embraced him, Mustard licked him, No one mourned for his pirate victim. Ink and Blink in glee did gyrate Around the dragon that ate the pirate. (The Tale of Custard the Dragon) (i) Complete the following suitably : 1 Belinda’s and Mustard’s reaction reflected a sense of _________. (ii) ‘Embraced’ in this context means : 1 (A) to accept (B) to feel awkward and sheepish (C) to put your arms 
+
+---
+
+**Q8** *(Set 2, General)*
+
+8. Answer any four of the following five questions in 40 – 50 words each : 4´3=12 (i) How, according to Robert Frost, will the world end twice in the poem ‘‘Fire and Ice’’ ? (ii) Why was Rajvir in ‘‘Glimpses of India’’ excited ? Why did Pranjol not share his excitement ? (iii) Why does the poem ‘‘For Anne Gregory’’ use the reference of ‘an old religious man’ ? (iv) Why did Maxwell call the airhostess ‘the very queen of her kind’ ? (Mijbil the Otter) (v) Describe Anne’s relationship with her grandmother. (From the Diary of Anne Frank)
+
+---
+
+**Q9** *(Set 2, General)*
+
+9. Answer any two of the following three questions in 40 – 50 words each : 2´3=6 (i) What did Mrs. Pumphrey do to bring Tricki to normal health ? Was she successful ? (A Triumph of Surgery) (ii) Describe Griffin’s room as seen by the Hall couple. (Footprints without Feet) (iii) What changes came into the life of the Loisels after the necklace was lost ? (The Necklace) 2/S/2
+
+---
+
+**Q10** *(Set 2, Long Answer)*
+
+10. Answer any one of the following two questions in 100 – 120 words : 6 (a) What challenges do Siddhartha in ‘The Sermon at Benares’ and Valliammai in ‘Madam Rides the Bus’ face ? How do their journeys reflect on the themes of human experience and self-realisation ? OR (b) The protagonist in ‘The Ball Poem’ and the young seagull in ‘His First Flight’ face challenges. Discuss with reference to the two texts.
+
+---
+
+**Q11** *(Set 2, Long Answer)*
+
+11. Answer any one of the following two questions in 100 – 120 words : 6 (a) ‘The devil is in the details’ captures the power of unexamined details and how it results in unforeseen difficulties. Discuss the statement in context to “The Midnight Visitor”. OR (b) The chapter ‘Bholi’ enables the readers to question values and customs prevailing in society. With reference to the text, discuss the above statement. 2/S/2
+
+---
+
+**Q6** *(Set 3, MCQ)*
+
+6. Read the following extracts and answer the questions for any one of the given two, (a) or (b) : 5 (a) NOODLE : (bowing) O Great and Mighty Think-Tank, most powerful and intelligent creature in the whole universe, what are your orders ? THINK-TANK : (peevishly) You left out part of my salutation, Apprentice Noodle. Go over the whole thing again. (The Book That Saved the Earth) (i) According to the extract, Noodle is a ________ to Think-Tank. 1 Select the correct option : (A) carpenter (B) subordinate (C) master (D) friend (ii) What does the above extract reveal about the character of Think-Tank ? 2 (iii) Fill in the blank with the correct word from the brackets. 1 The use of the word ‘peevishly’ suggests that Think-Tank was feeling __________ (elated/annoyed). (iv) How does Noodle describe Think-Tank in his salutation ? 1 OR (b) NATALYA : Forgive us, Ivan Vassilevitch, we were all a little heated. I remember now: Oxen Meadows... really are yours. LOMOV : My heart’s beating awfully. M
+
+---
+
+**Q7** *(Set 3, MCQ)*
+
+7. Read the following extracts and answer the questions for any one of the given two, (a) or (b) : 5 (a) The trees inside are moving out into the forest, the forest that was empty all these days where no bird could sit no insect hide no sun bury its feet in shadow (The Trees) (i) Where are the trees moving out from ? 1 (ii) How does the author’s use of descriptive language enhance the impact on the reader ? 1 (iii) Complete the following suitably : The emptiness of the forest is highlighted by __________. 1 (iv) Explain the phrase “no sun bury its feet” with reference to the extract. 2 OR (b) Belinda embraced him, Mustard licked him, No one mourned for his pirate victim. Ink and Blink in glee did gyrate Around the dragon that ate the pirate. (The Tale of Custard the Dragon) (i) Complete the following suitably : 1 Belinda’s and Mustard’s reaction reflected a sense of _________. (ii) ‘Embraced’ in this context means : 1 (A) to accept (B) to feel awkward and sheepish (C) to put your arms 
+
+---
+
+**Q8** *(Set 3, General)*
+
+8. Answer any four of the following five questions in 40 – 50 words each : 4´3=12 (i) How does Robert Frost in the poem ‘‘Fire and Ice’’ present two contrasting ideas ? (ii) What is the story about the Kodavu people’s descent in ‘‘Glimpses of India’’ ? (iii) How does the poem ‘‘For Anne Gregory’’ give importance to ‘inner beauty’ ? (iv) Why did Maxwell keep an otter as a pet ? (Mijbil the Otter) (v) Why did Mr. Keesing decide to stop punishing Anne ? (From the Diary of Anne Frank)
+
+---
+
+**Q9** *(Set 3, General)*
+
+9. Answer any two of the following three questions in 40 – 50 words each : 2´3=6 (i) Why was Mr. Herriot tempted to keep Tricki on as a permanent guest ? (A Triumph of Surgery) (ii) Describe Griffin’s experience in the shop of a theatrical company. (Footprints without Feet) (iii) Why was Mme Forestier shocked to hear Matilda’s story ? (The Necklace) 2/S/3
+
+---
+
+**Q10** *(Set 3, Long Answer)*
+
+10. Answer any one of the following two questions in 100 – 120 words : 6 (a) What challenges do Siddhartha in ‘The Sermon at Benares’ and Valliammai in ‘Madam Rides the Bus’ face ? How do their journeys reflect on the themes of human experience and self-realisation ? OR (b) The protagonist in ‘The Ball Poem’ and the young seagull in ‘His First Flight’ face challenges. Discuss with reference to the two texts.
+
+---
+
+**Q11** *(Set 3, Long Answer)*
+
+11. Answer any one of the following two questions in 100 – 120 words : 6 (a) ‘The devil is in the details’ captures the power of unexamined details and how it results in unforeseen difficulties. Discuss the statement in context to “The Midnight Visitor”. OR (b) The chapter ‘Bholi’ enables the readers to question values and customs prevailing in society. With reference to the text, discuss the above statement. 2/S/3
+
+---
+
+### Year: 2024
+
+**Q6** *(Set 1, MCQ)*
+
+6. Read the following extracts and answer the questions for any one of the given two, (a) or (b) : 5 (a) For the first twenty-four hours, Mijbil was neither hostile nor friendly; he was simply aloof and indifferent, choosing to sleep on the floor as far from my bed as possible. The second night Mijbil came on to my bed in the small hours and remained asleep in the crook of my knees until the servant brought tea in the morning, and during the day he began to lose his apathy and take a keen, much too keen, interest in his surroundings. I made a body-belt for him and took him on a lead to the bathroom, where for half an hour he went wild with joy in the water. (Mijbil the Otter) (i) Which of the following is not a reason why Mijbil came on to Maxwells bed in the small hours ? 1 (A) He had started taking interest in his surroundings. (B) He was becoming friendly with Maxwell. (C) He wanted to play with Maxwell on his bed. (D) He wanted to feel safe and not remain indifferent. (ii) Maxwell 
+
+---
+
+**Q7** *(Set 1, MCQ)*
+
+7. Read the following extracts and answer the questions for any one of the given two, (a) or (b) : 5 (a) But h s locked in a concrete cell, His strength behind bars, Stalking the length of his cage, Ignoring visitors. (A Tiger in the Zoo) (i) Why is the tiger stalking the length of his cage ? 1 (ii) What is the significance of the use of the describe the concrete cell where the tiger is kept and how does it contrast with the tiger presence in its natural habitat ? Answer in about 40 words. 2 (iii) Complete the sentence with the appropriate option : 1 The lines from the poem tell us that the tiger is __________ . (A) enjoying his time in the cell (B) being indifferent to visitors because it is a daily routine for him (C) not as strong as his counterpart in the jungle (D) wanting to be free from the cage (iv) Identify the type of literary device used in the line : 1 ut OR (b) Belinda was as brave as a barrel full of bears, And Ink and Blink chased lions down the stairs, Mustard was as br
+
+---
+
+**Q8** *(Set 1, General)*
+
+8. Answer any four of the following five questions in 40 50 words each : 4 3=12 (i) Nelson Mandela in his inauguration speech says, e, who were outlaws not so long ago, have today been given the rare privilege to be host to the nations of the world on our own soil. What is the significance of this statement with reference to the political system that prevailed before this ? (Nelson Mandela Long Walk to Freedom) (ii) The Ball Poem initially appears simple but it is actually quite impactful and intense. Comment upon the theme of The Ball Poem. (iii) Coorg has been defined as a piece of heaven by the writer. Justify. (Glimpses of India) (iv) , what a burden, Lord, to be the father of a grown-up daughter! Explain what this line conveys about Chubukov as a father. (The Proposal) (v) In every alternate stanza, Amanda drifts into fantasy and yearns for more freedom and silence. Justify and elaborate the reason. (Amanda)
+
+---
+
+**Q9** *(Set 1, General)*
+
+9. Answer any two of the following three questions in 40 50 words each : 2 3=6 (i) We are often over-indulgent towards people we care about. Explain with reference to the context of the story A Triumph of Surgery . (ii) How did Apprentice Noodle act smartly by suggesting something about the book without offending Think-Tank ? (The Book That Saved The Earth) (iii) Despite his unusual appearance, Ausables presence of mind helped him get rid of Max. Comment with reference to the story The Midnight Visitor.
+
+---
+
+**Q10** *(Set 1, Long Answer)*
+
+10. Answer any one of the following two questions in 100 120 words. 6 (a) Grief or sadness is an emotion natural to all types of loss or significant change. You have been asked to present an analysis of the approaches of Lencho and Kisa Gotami in dealing with their respective losses. Write this presentation draft including your insights, and comparing the approaches of both. You may begin like this : One acknowledges that Lencho had unwavering faith in God whereas Kisa Gotami in her grief, believed that her son .................... however ..................... . (Reference A Letter to God and The Sermon at Benares) OR (b) You have been chosen to address the school assembly on the occasion of Womens Day. You choose to speak on the resilience and indomitable spirit of the young girls : Anne Frank and Valli. Prepare the speech draft, with reference to the commonality and contrast in the situations and circumstances of both the girls. (Madam Rides the Bus and From the Diary of Anne Frank)
+
+---
+
+**Q11** *(Set 1, Long Answer)*
+
+11. Answer any one of the following two questions in 100 120 words. 6 (a) Imagine that Hari Singh from The Thief s Story by Ruskin Bond, writes a diary entry, exploring the theme of human values and relations that are essential in life and can transform a person in the context of his own experience. Write this diary entry as Hari Singh. (The Thief s Story) OR (b) A character arc is the transformation or development of a character throughout a story and refers to the changes a character undergoes as a result of his/her experiences, challenges and interactions with other characters. In the light of the above information, trace the character arc of Bholi in K.A. Abbas Bholi
+
+---
+
+**Q6** *(Set 2, MCQ)*
+
+6. Read the following extracts and answer the questions for any one of the given two, (a) or (b) : 5 (a) For the first twenty-four hours, Mijbil was neither hostile nor friendly; he was simply aloof and indifferent, choosing to sleep on the floor as far from my bed as possible. The second night Mijbil came on to my bed in the small hours and remained asleep in the crook of my knees until the servant brought tea in the morning, and during the day he began to lose his apathy and take a keen, much too keen, 2/4/2-14 12 interest in his surroundings. I made a body-belt for him and took him on a lead to the bathroom, where for half an hour he went wild with joy in the water. (Mijbil the Otter) (i) Which of the following is not a reason why Mijbil came on to Maxwells bed in the small hours ? 1 (A) He had started taking interest in his surroundings. (B) He was becoming friendly with Maxwell. (C) He wanted to play with Maxwell on his bed. (D) He wanted to feel safe and not remain indifferent. (
+
+---
+
+**Q7** *(Set 2, MCQ)*
+
+7. Read the following extracts and answer the questions for any one of the given two, (a) or (b) : 5 (a) But h s locked in a concrete cell, His strength behind bars, Stalking the length of his cage, Ignoring visitors. (A Tiger in the Zoo) (i) Why is the tiger stalking the length of his cage ? 1 (ii) What is the significance of the use of the describe the concrete cell where the tiger is kept and how does it contrast with the tiger presence in its natural habitat ? Answer in about 40 words. 2 (iii) Complete the sentence with the appropriate option : 1 The lines from the poem tell us that the tiger is __________ . (A) enjoying his time in the cell (B) being indifferent to visitors because it is a daily routine for him (C) not as strong as his counterpart in the jungle (D) wanting to be free from the cage (iv) Identify the type of literary device used in the line : 1 OR (b) Belinda was as brave as a barrel full of bears, And Ink and Blink chased lions down the stairs, Mustard was as brave
+
+---
+
+**Q8** *(Set 2, General)*
+
+8. Answer any four of the following five questions in 40 50 words each : 4 3=12 (i) Nelson Mandela in his inauguration speech says, e, who were outlaws not so long ago, have today been given the rare privilege to be host to the nations of the world on our own soil. What is the significance of this statement with reference to the political system that prevailed before this ? (Nelson Mandela Long Walk to Freedom) (ii) The Ball Poem initially appears simple but it is actually quite impactful and intense. Comment upon the theme of The Ball Poem. (iii) Coorg has been defined as a piece of heaven by the writer. Justify. (Glimpses of India) (iv) What argument do Lomov and Natalya give over the superiority of their dogs, Guess and Squeezer ? (The Proposal) (v) In the poem Amanda, why does the poet use the famous fairy tale character, Rapunzel ? Explain. (Amanda)
+
+---
+
+**Q9** *(Set 2, General)*
+
+9. Answer any two of the following three questions in 40 50 words each : 2 3=6 (i) We are often over-indulgent towards people we care about. Explain with reference to the story A Triumph of Surgery . (ii) How did Apprentice Noodle act smartly by suggesting something about the book without offending Think-Tank ? (The Book That Saved The Earth) (iii) Despite his unusual appearance, Ausables presence of mind helped him get rid of Max. Comment with reference to the story The Midnight Visitor.
+
+---
+
+**Q10** *(Set 2, Long Answer)*
+
+10. Answer any one of the following two questions in 100 120 words. 6 (a) Grief or sadness is an emotion natural to all types of loss or significant change. You have been asked to present an analysis of the approaches of Lencho and Kisa Gotami in dealing with their respective losses. Write this presentation draft including your insights, and comparing the approaches of both. You may begin like this : One acknowledges that Lencho had unwavering faith in God whereas Kisa Gotami in her grief, believed that her son ................ however ................ . (Reference A Letter to God and The Sermon at Benares). OR (b) You have been chosen to address the school assembly on the occasion of Womens Day. You choose to speak on the resilience and indomitable spirit of the young girls : Anne Frank and Valli. Prepare the speech draft, with reference to the commonality and contrast in the situations and circumstances of both the girls. (Madam Rides the Bus and From the Diary of Anne Frank) You may
+
+---
+
+**Q11** *(Set 2, Long Answer)*
+
+11. Answer any one of the following two questions in 100 120 words. 6 (a) Imagine that Hari Singh from The Thief s Story by Ruskin Bond, writes a diary entry, exploring the theme of human values and relations that are essential in life and can transform a person in the context of his own experience. Write this diary entry as Hari Singh. (The Thief s Story) OR (b) A character arc is the transformation or development of a character throughout a story and refers to the changes a character undergoes as a result of his/her experiences, challenges and interactions with other characters. In the light of the above information, trace the character arc of Bholi in K.A. Abbas Bholi
+
+---
+
+**Q6** *(Set 3, MCQ)*
+
+6. Read the following extracts and answer the questions for any one of the given two, (a) or (b) : 5 (a) For the first twenty-four hours, Mijbil was neither hostile nor friendly; he was simply aloof and indifferent, choosing to sleep on the floor as far from my bed as possible. The second night Mijbil came on to my bed in the small hours and remained asleep in the crook of my knees until the servant brought tea in the morning, and during the day he began to lose his apathy and take a keen, much too keen, interest in his surroundings. I made a body-belt for him and took him on a lead to the bathroom, where for half an hour he went wild with joy in the water. (Mijbil the Otter) (i) Which of the following is not a reason why Mijbil came on to Maxwells bed in the small hours ? 1 (A) He had started taking interest in his surroundings. (B) He was becoming friendly with Maxwell. (C) He wanted to play with Maxwell on his bed. (D) He wanted to feel safe and not remain indifferent. (ii) Maxwell 
+
+---
+
+**Q7** *(Set 3, MCQ)*
+
+7. Read the following extracts and answer the questions for any one of the given two, (a) or (b) : 5 (a) But h s locked in a concrete cell, His strength behind bars, Stalking the length of his cage, Ignoring visitors. (A Tiger in the Zoo) (i) Why is the tiger stalking the length of his cage ? 1 (ii) What is the significance of the use of the describe the concrete cell where the tiger is kept and how does it contrast with the tiger presence in its natural habitat ? Answer in about 40 words. 2 (iii) Complete the sentence with the appropriate option : 1 The lines from the poem tell us that the tiger is __________ . (A) enjoying his time in the cell (B) being indifferent to visitors because it is a daily routine for him (C) not as strong as his counterpart in the jungle (D) wanting to be free from the cage (iv) Identify the type of literary device used in the line : 1 OR (b) Belinda was as brave as a barrel full of bears, And Ink and Blink chased lions down the stairs, Mustard was as brave
+
+---
+
+**Q8** *(Set 3, General)*
+
+8. Answer any four of the following five questions in 40 50 words each : 4 3=12 (i) Nelson Mandela in e, who were outlaws not so long ago, have today been given the rare privilege to be host to the nations of the world on our own soil. What is the significance of this statement with reference to the political system that prevailed before this ? (Nelson Mandela Long Walk to Freedom) (ii) The Ball Poem initially appears simple but it is actually quite impactful and intense. Comment upon the theme of The Ball Poem. (iii) Coorg has been defined as a piece of heaven by the writer. Justify. (Glimpses of India) (iv) Lomov and Natalya trade charges against each other about the ownership of Meadows. Explain. (The Proposal) (v) In one instance, Amanda considers herself to be an orphan. What connotation does it entail ? (Amanda)
+
+---
+
+**Q9** *(Set 3, General)*
+
+9. Answer any two of the following three questions in 40 50 words each : 2 3=6 (i) We are often over-indulgent towards people we care about. Explain with reference to the story A Triumph of Surgery . (ii) How did Apprentice Noodle act smartly by suggesting something about the book without offending Think-Tank ? (The Book That Saved The Earth) (iii) Despite his unusual appearance, Ausables presence of mind helped him get rid of Max. Comment with reference to the story The Midnight Visitor.
+
+---
+
+**Q10** *(Set 3, Long Answer)*
+
+10. Answer any one of the following two questions in 100 120 words. 6 (a) Grief or sadness is an emotion natural to all types of loss or significant change. You have been asked to present an analysis of the approaches of Lencho and Kisa Gotami in dealing with their respective losses. Write this presentation draft including your insights, and comparing the approaches of both. You may begin like this : One acknowledges that Lencho had unwavering faith in God whereas Kisa Gotami in her grief, believed that her son ............... however ................. . (Reference A Letter to God and The Sermon at Benares) OR 2/4/3-14 18 (b) You have been chosen to address the school assembly on the occasion of Womens Day. You choose to speak on the resilience and indomitable spirit of the young girls : Anne Frank and Valli. Prepare the speech draft, with reference to the commonality and contrast in the situations and circumstances of both the girls. (Madam Rides the Bus and From the Diary of Anne Fra
+
+---
+
+**Q11** *(Set 3, Long Answer)*
+
+11. Answer any one of the following two questions in 100 120 words. 6 (a) Imagine that Hari Singh from The Thief s Story by Ruskin Bond, writes a diary entry, exploring the theme of human values and relations that are essential in life and can transform a person in the context of his own experience. Write this diary entry as Hari Singh. (The Thief s Story) OR (b) A character arc is the transformation or development of a character throughout a story and refers to the changes a character undergoes as a result of his/her experiences, challenges and interactions with other characters. In the light of the above information, trace the character arc of Bholi in K.A. Abbas Bholi
+
+---
+
+### Year: 2025
+
+**Q6** *(Set 1, Short Answer)*
+
+6. Answer any six questions in 30 40 words each : 6 2=12 (i) Explain the Indian legend associated with the origin of tea. (Glimpses of India) (ii) (iii) Describe any two character traits of Amanda. (iv) - (Animals) (v) How did Ink and Blink behave when they saw the pirate ? (The Tale of Custard the Dragon) (vi) How did Dr. Urquhart encourage Ebright ? (The Making of a Scientist) (vii) What did the hack driver tell the narrator about Lutkins mother ?
+
+---
+
+**Q7** *(Set 1, Long Answer)*
+
+7. Answer any two of the following in about 120 words each : 2 4=8 (i) the statement with references from the text. (The Necklace) (ii) Valliammai comes across as a very confident, sensible and sensitive girl. Write a letter to your friend admiring Valli. (Madam Rides the Bus) (iii) Taking references from the text Sermon at Benare , describe how Kisa Gotam ddha.
+
+---
+
+**Q6** *(Set 2, Short Answer)*
+
+6. Answer any six questions in 30 40 words each : 6 2=12 (i) (ii) (The Proposal) (iii) Why does the adult in the poem blame Amanda ? Give two reasons. (iv) (Animals) (v) How did the the Dragon) (vi) How did Ebright spend his time in Pennsylvania ? (The Making of a Scientist) (vii) How was the hack driver recognised ?
+
+---
+
+**Q7** *(Set 2, Long Answer)*
+
+7. Answer any two of the following in about 120 words each : 2 4=8 (i) Valliammai comes across as a very confident, sensible and sensitive girl. Write a letter to your friend admiring Valli. (Madam Rides the Bus) (ii) Taking references from the text Sermon at Benare , describe how Kisa Gotam g was changed by Buddha. (iii) the statement with references from the text. (The Necklace)
+
+---
+
+**Q6** *(Set 3, Short Answer)*
+
+6. Answer any six questions in 30 40 words each : 6 2=12 (i) What is the Chinese legend about the discovery of tea ? (Glimpses of India) (ii) How did Chubukov react initially when Lomov visited their house ? (The Proposal) (iii) Why does Amanda wish to be Rapunzel ? (iv) How does the poet defend the animals against the humans ? Give two reasons. (v) on ? Give two reasons why or why not. (vi) (vii) How did Lutkins befool the lawyer ? (The Hack Driver)
+
+---
+
+**Q7** *(Set 3, Long Answer)*
+
+7. Answer any two of the following in about 120 words each : 2 4=8 (i) Valliammai comes across as a very confident, sensible and sensitive girl. Write a letter to your friend admiring Valli. (Madam Rides the Bus) (ii) Taking references from the text Sermon at Benare , describe how Kisa Gotam ddha. (iii) ed and ambition brings about her downfall. Support the statement with references from the text. (The Necklace)
+
+---
+
+**Q6** *(Set 1, MCQ)*
+
+6. Read the following extracts and answer the questions for any one of the given two, (a) or (b) : 5 (a) We have, at last, achieved our political emancipation. We pledge ourselves to liberate all our people from the continuing bondage of poverty, deprivation, suffering, gender and other discrimination. Never, never, and never again shall it be that this beautiful land will again experience the oppression of one by another. The sun shall never set on so glorious a human achievement. Let freedom reign. God bless Africa! (Nelson Mandela Long Walk to Freedom) (i) State any one inference about Nelson Mandela from the given context : 1 (ii) State True or False : 1 ntends to mean well-being and welfare of only black people in South Africa. (iii) about 40 words with reference to the extract. 2 (iv) Which phrase would correctly the given sentence from the extract. 1 The sun shall never set on so glorious a human achievement. OR 2/5/1-15 14 (b) The expected call came within a few days. Mrs. Pump
+
+---
+
+**Q7** *(Set 1, MCQ)*
+
+7. Read the following extracts and answer the questions for any one of the given two, (a) or (b) : 5 (a) In a world of possessions. People will take Balls, balls will be lost always, little boy. And no one buys a ball back. Money is external. He is learning, well behind his desperate eyes, The epistemology of loss, how to stand up Knowing what every man must one day know And most know many days, how to stand up. (The Ball Poem) (i) Fill in the blank with one word. 1 will take balls, Balls will be lost ________. (ii) The poet says that money is external. What inference can be drawn from this statement ? Answer in about 40 words. 2 (iii) towards material possessions ? 1 (A) indifferent (B) emotional (C) casual (D) respectful (iv) 1 OR 2/5/1-15 16 (b) Remember your acne, Amanda! Amanda! (I am Rapunzel, I have not a care; life in a tower is tranquil and rare;) (Amanda) (i) What is the central idea of the poem as reflected in the lines above ? Answer in about 40 words. 2 (ii) Complete the s
+
+---
+
+**Q8** *(Set 1, General)*
+
+8. Answer any four of the following five questions in 40 50 words each : 4 3=12 (i) Maxwell decides to keep an otter as a pet. Elucidate with reference to the fact that owning a pet is a life of commitment. (Mijbil the Otter) (ii) ad. How does Ogden Nash create humour and entertainment in the poem ? (iii) characters and plot. (iv) The author says During our childhood in Goa, the baker used to be our friend, companion and guide. Elaborate. (Glimpses of India) (v) Do you think you can love a person for his/her inner beauty alone and not care about the physical appearance ?
+
+---
+
+**Q9** *(Set 1, General)*
+
+9. Answer any two of the following three questions in 40 50 words each : 2 3=6 (i) One should never judge a book by its cover. Explain with reference to Ausable and how he outwits Max with his presence of mind. (The Midnight Visitor) (ii) c (A Question of Trust) (iii) How can one say that Ebrights curiosity / inquisitiveness drove him to become a scientist ? (The Making of a Scientist)
+
+---
+
+**Q10** *(Set 1, Long Answer)*
+
+10. Answer any one of the following two questions in 100 120 words : 6 (a) You have been asked to present an evaluation of the approaches of both, the Baby Seagull and the Pilot who was lost in the clouds, towards achieving their dreams of conquering the skies. Write this presentation draft including your insights, comparing the approaches of both. You may begin this way : One acknowledges that both, the Seagull and the Pilot, wanted to ........................ however, ........................ . (Reference : Two Stories About Flying) OR (b) You have been chosen to address the school assembly, to speak on the epistemology of loss and the resilience of the human spirit during times of crisis. Prepare the speech draft, with reference to You may begin this way : Good morning everyone. Today, re that offer a powerful insight into how to deal with loss and the resilience of the human spirit required during times of crisis. You may end this way : ........................ . Thank you. 2/5/1-1
+
+---
+
+**Q11** *(Set 1, Long Answer)*
+
+11. Answer any one of the following two questions in 100 120 words : 6 (a) Imagine that Bholi writes a diary entry, exploring the themes of , in the context of her own experiences. Write this dairy entry, as Bholi. OR (b) A character arc is the transformation or development of a character throughout a story and refers to the changes a character undergoes as a result of his/her experiences, challenges and interactions with other characters. In light of the above information, trace the character arc of Griffin in H.G. Wells Footprints without Feet.
+
+---
+
+**Q6** *(Set 2, MCQ)*
+
+6. Read the following extracts and answer the questions for any one of the given two, (a) or (b) : 5 (a) We have, at last, achieved our political emancipation. We pledge ourselves to liberate all our people from the continuing bondage of poverty, deprivation, suffering, gender and other discrimination. Never, never, and never again shall it be that this beautiful land will again experience the oppression of one by another. The sun shall never set on so glorious a human achievement. Let freedom reign. God bless Africa! (Nelson Mandela Long Walk to Freedom) (i) State any one inference about Nelson Mandela from the given context : 1 (ii) State True or False : 1 well-being and welfare of only black people in South Africa. (iii) about 40 words with reference to the extract. 2 (iv) Which phrase would correctly given sentence from the extract. 1 The sun shall never set on so glorious a human achievement. OR 2/5/2-15 14 (b) The expected call came within a few days. Mrs. Pumphrey was distraught
+
+---
+
+**Q7** *(Set 2, MCQ)*
+
+7. Read the following extracts and answer the questions for any one of the given two, (a) or (b) : 5 (a) In a world of possessions. People will take Balls, balls will be lost always, little boy. And no one buys a ball back. Money is external. He is learning, well behind his desperate eyes, The epistemology of loss, how to stand up Knowing what every man must one day know And most know many days, how to stand up. (The Ball Poem) (i) Fill in the blank with one word. 1 will take balls, Balls will be lost (ii) The poet says that money is external. What inference can be drawn from this statement ? Answer in about 40 words. 2 (iii) itude towards material possessions ? 1 (A) indifferent (B) emotional (C) casual (D) respectful (iv) 1 OR 2/5/2-15 16 (b) Remember your acne, Amanda! Amanda! (I am Rapunzel, I have not a care; life in a tower is tranquil and rare;) (Amanda) (i) What is the central idea of the poem as reflected in the lines above ? Answer in about 40 words. 2 (ii) Complete the sente
+
+---
+
+**Q8** *(Set 2, General)*
+
+8. Answer any four of the following five questions in 40 50 words each : 4 3=12 (i) Maxwell decides to keep an otter as a pet. Elucidate with reference to the fact that owning a pet is a life of commitment. (Mijbil the Otter) (ii) How does Ogden Nash create humour and entertainment in the poem ? (iii) characters and plot. (iv) radition of hospitality, and they are more than willing to recount numerous tales of valour related to their (v) ed trees as a metaphor for human beings. What do they symbolize ? Explain.
+
+---
+
+**Q9** *(Set 2, General)*
+
+9. Answer any two of the following three questions in 40 50 words each : 2 3=6 (i) One should never judge a book by its cover. Explain with reference to Ausable and how he outwits Max with his presence of mind. (The Midnight Visitor) (ii) c (A Question of Trust) (iii) How can one say that Ebrights curiosity / inquisitiveness drove him to become a scientist ? (The Making of a Scientist)
+
+---
+
+**Q10** *(Set 2, Long Answer)*
+
+10. Answer any one of the following two questions in 100 120 words : 6 (a) You have been asked to present an evaluation of the approaches of both, the Baby Seagull and the Pilot who was lost in the clouds, towards achieving their dreams of conquering the skies. Write this presentation draft including your insights, comparing the approaches of both. You may begin this way : One acknowledges that both, the Seagull and the Pilot, wanted to ...................... however, ...................... . (Reference : Two Stories About Flying) OR (b) You have been chosen to address the school assembly, to speak on the epistemology of loss and the resilience of the human spirit during times of crisis. Prepare the speech draft, with reference to You may begin this way : Good morning everyone. Today, ure that offer a powerful insight into how to deal with loss and the resilience of the human spirit required during times of crisis. You may end this way : ...................... . Thank you. 2/5/2-15 18
+
+---
+
+**Q11** *(Set 2, Long Answer)*
+
+11. Answer any one of the following two questions in 100 120 words : 6 (a) Imagine that Bholi writes a diary entry, exploring the themes of , in the context of her own experiences. Write this dairy entry, as Bholi. OR (b) A character arc is the transformation or development of a character throughout a story and refers to the changes a character undergoes as a result of his/her experiences, challenges and interactions with other characters. In light of the above information, trace the character arc of Griffin in H.G. Wells Footprints without Feet.
+
+---
+
+**Q6** *(Set 3, MCQ)*
+
+6. Read the following extracts and answer the questions for any one of the given two, (a) or (b) : 5 (a) We have, at last, achieved our political emancipation. We pledge ourselves to liberate all our people from the continuing bondage of poverty, deprivation, suffering, gender and other discrimination. Never, never, and never again shall it be that this beautiful land will again experience the oppression of one by another. The sun shall never set on so glorious a human achievement. Let freedom reign. God bless Africa! (Nelson Mandela Long Walk to Freedom) (i) State any one inference about Nelson Mandela from the given context : 1 (ii) State True or False : 1 well-being and welfare of only black people in South Africa. (iii) about 40 words with reference to the extract. 2 (iv) Which phrase would correctly given sentence from the extract. 1 The sun shall never set on so glorious a human achievement. OR 2/5/3-15 14 (b) The expected call came within a few days. Mrs. Pumphrey was distraught
+
+---
+
+**Q7** *(Set 3, MCQ)*
+
+7. Read the following extracts and answer the questions for any one of the given two, (a) or (b) : 5 (a) In a world of possessions. People will take Balls, balls will be lost always, little boy. And no one buys a ball back. Money is external. He is learning, well behind his desperate eyes, The epistemology of loss, how to stand up Knowing what every man must one day know And most know many days, how to stand up. (The Ball Poem) (i) Fill in the blank with one word. 1 will take balls, Balls will be lost (ii) The poet says that money is external. What inference can be drawn from this statement ? Answer in about 40 words. 2 (iii) Wh towards material possessions ? 1 (A) indifferent (B) emotional (C) casual (D) respectful (iv) 1 OR 2/5/3-15 16 (b) hat chocolate, Amanda! Remember your acne, Amanda! Amanda! (I am Rapunzel, I have not a care; life in a tower is tranquil and rare;) (Amanda) (i) What is the central idea of the poem as reflected in the lines above ? Answer in about 40 words. 2 (ii
+
+---
+
+**Q8** *(Set 3, General)*
+
+8. Answer any four of the following five questions in 40 50 words each : 4 3=12 (i) Maxwell decides to keep an otter as a pet. Elucidate with reference to the fact that owning a pet is a life of commitment. (Mijbil the Otter) (ii) How does Ogden Nash create humour and entertainment in the poem ? (iii) e characters and plot. (iv) the village is absolutely essential ? Justify with reference to (v) nd back again to the zoo. What effect does the poet want to bring out with this ? Elaborate.
+
+---
+
+**Q9** *(Set 3, General)*
+
+9. Answer any two of the following three questions in 40 50 words each : 2 3=6 (i) One should never judge a book by its cover. Explain with reference to Ausable and how he outwits Max with his presence of mind. (The Midnight Visitor) (ii) c (A Question of Trust) (iii) How can one say that Ebrights curiosity / inquisitiveness drove him to become a scientist ? (The Making of a Scientist)
+
+---
+
+**Q10** *(Set 3, Long Answer)*
+
+10. Answer any one of the following two questions in 100 120 words : 6 (a) You have been asked to present an evaluation of the approaches of both, the Baby Seagull and the Pilot who was lost in the clouds, towards achieving their dreams of conquering the skies. Write this presentation draft including your insights, comparing the approaches of both. You may begin this way : One acknowledges that both, the Seagull and the Pilot, wanted to ...................... however, ...................... . (Reference : Two Stories About Flying) OR (b) You have been chosen to address the school assembly, to speak on the epistemology of loss and the resilience of the human spirit during times of crisis. Prepare the speech draft, with reference to You may begin this way : Good morning everyone. Today, ces of literature that offer a powerful insight into how to deal with loss and the resilience of the human spirit required during times of crisis. You may end this way : ...................... . Thank you
+
+---
+
+**Q11** *(Set 3, Long Answer)*
+
+11. Answer any one of the following two questions in 100 120 words : 6 (a) Imagine that Bholi writes a diary entry, exploring the themes of , in the context of her own experiences. Write this dairy entry, as Bholi. OR (b) A character arc is the transformation or development of a character throughout a story and refers to the changes a character undergoes as a result of his/her experiences, challenges and interactions with other characters. In light of the above information, trace the character arc of Griffin in H.G. Wells Footprints without Feet.
+
+---
+
+### Year: Compartment
+
+**Q6** *(Set 1, MCQ)*
+
+6. Attempt any one from (A) and (B) given below : (A) Read the following extract and answer the questions that follow : 5 1=5 Don't you want to have a look a the sights, now that youre here All by myself ? Oh, I'd be much too afraid Greatly amused by the girls way of speaking, the conductor said, ut you afraid to come in the bus Nothing to be afraid about that, she answered. (i) Why did the girl not want to look at the sights ? (a) She had seen them before. (b) She disliked visiting historical sites. (c) She did not want to go with the conductor. (d) She feared going by herself. (ii) Fill in the blank with one word only. The conductor __________ clearly comes through when he hears the girl speaking. (iii) Select the option that correctly captures the application of the word as used in the extract. (a) Rashid could not sight the tiger. (b) Rashi lost his sight in the left eye. (c) The General ordered the soldiers not to shoot at sight when they saw the enemy. (d) Rashid was fascinated b
+
+---
+
+**Q7** *(Set 1, MCQ)*
+
+7. Attempt any one from (A) and (B) given below : (A) Read the following extract and answer the questions that follow : 5 1=5 Belinda embraced him, Mustard licked him, No one mourned for his pirate victim. Ink and Blink in glee did gyrate Around the dragon that ate the pirate. Answer in one word only : (i) Mustard was happily licking the __________. 2/C/1 16 (ii) Belinda embraced Mustard I. out of shock II. out of helplessness III. out of happiness IV. out of gratitude Choose the correct option : (a) I and IV (b) Only III (c) II and III (d) III and IV (iii) Why were Ink and Blink happy ? (iv) Complete the analogy and choose the word from the extract that means the opposite of the given word. Day : Night : : Steady : ________ (v) most nearly means (a) no one celebrated (b) no one embraced him (c) no one felt sad (d) no one paid a tribute to him OR (B) Read the following extract and answer the questions that follow : 5 1=5 Some say the world will end in fire Some say in ice. I hold with 
+
+---
+
+**Q8** *(Set 1, MCQ)*
+
+8. Answer any four of the following questions in about 40 50 words each : 4 3=12 (a) Why was the young seagull afraid to fly with his family members ? (b) ? (c) The people of Coorg have a tradition of courage and bravery. How has it been recognized in modern India ? (d) What happened when Maxwell took Mijbil to the bathroom? What does it tell us about Mijbil ? (e) The Ball P 2/C/1 18
+
+---
+
+**Q9** *(Set 1, General)*
+
+9. Answer any two of the following questions in about 40 50 words each : 2 3=6 (a) Why is Dr. Herriot tempted to keep Tricki on as a permanent guest ? (b) Why did Ausable frame the story of the balcony ? (c) What happened when Mr. and Mrs. Hall entered the strangers room ?
+
+---
+
+**Q10** *(Set 1, Long Answer)*
+
+10. Answer any one of the following questions in about 100 120 words : 6 (a) Timely help and sympathy are a great help for those who are in grief. Gautama Buddha helped Kisa Gotami by his kind words and guidance in overcoming her grief. It is a big relief for grieving persons if support and care are extended to them. How are kindness and sympathy important in a peaceful and joyful life ? OR (b) Physical beauty is not permanent, but the beauty of character or internal beauty is permanent. Justify on the basis of your reading of F
+
+---
+
+**Q11** *(Set 1, Long Answer)*
+
+11. Answer any one of the following questions in about 100 120 words : 6 (a) highlight that change of social attitude and encouragement can help a child like Bholi to become confident and face the world bravely. On the basis of the s towards Bholi made her an introvert. What should be done to help such children to face the world bravely ? OR (b) -ambitiousness was the cause of her destruction. Justify.
+
+---
+
+**Q6** *(Set 2, MCQ)*
+
+6. Attempt any one from (A) and (B) given below : (A) Read the following extract and answer the questions that follow : 5 1=5 Don't you want to have a look a the sights, now that youre here All by myself ? Oh, I'd be much too afraid Greatly amused by the girls way of speaking, the conductor said, ut you afraid to come in the bus Nothing to be afraid about that, she answered. (i) Why did the girl not want to look at the sights ? (a) She had seen them before. (b) She disliked visiting historical sites. (c) She did not want to go with the conductor. (d) She feared going by herself. (ii) Fill in the blank with one word only. The conductor learly comes through when he hears the girl speaking. (iii) Select the option that correctly captures the application of the word as used in the extract. (a) Rashid could not sight the tiger. (b) Rashi lost his sight in the left eye. (c) The General ordered the soldiers not to shoot at sight when they saw the enemy. (d) Rashid was fascinated by the sights
+
+---
+
+**Q7** *(Set 2, MCQ)*
+
+7. Attempt any one from (A) and (B) given below : (A) Read the following extract and answer the questions that follow : 5 1=5 Belinda embraced him, Mustard licked him, No one mourned for his pirate victim. Ink and Blink in glee did gyrate Around the dragon that ate the pirate. Answer in one word only : (i) Mustard was happily licking the __________. 2/C/2 16 (ii) Belinda embraced Mustard I. out of shock II. out of helplessness III. out of happiness IV. out of gratitude Choose the correct option : (a) I and IV (b) Only III (c) II and III (d) III and IV (iii) Why were Ink and Blink happy ? (iv) Complete the analogy and choose the word from the extract that means the opposite of the given word. Day : Night : : Steady : ________ (v) (a) no one celebrated (b) no one embraced him (c) no one felt sad (d) no one paid a tribute to him OR (B) Read the following extract and answer the questions that follow : 5 1=5 Some say the world will end in fire Some say in ice. I hold with those who favour f
+
+---
+
+**Q8** *(Set 2, MCQ)*
+
+8. Answer any four of the following questions in about 40 50 words each : 4 3=12 (a) Why was the young seagull afraid to fly with his family members ? (b) ? (c) The people of Coorg have a tradition of courage and bravery. How has it been recognized in modern India ? (d) What experiment did Maxwell think Camusfearna would be suitable for ? (e) What does the poet mean by epistemology of loss Poem ? 2/C/2 18
+
+---
+
+**Q9** *(Set 2, General)*
+
+9. Answer any two of the following questions in about 40 50 words each : 2 3=6 (a) Why is Dr. Herriot tempted to keep Tricki on as a permanent guest ? (b) Why did Ausable frame the story of the balcony ? (c) What happened when Mr. and Mrs. Hall entered the strangers room ?
+
+---
+
+**Q10** *(Set 2, Long Answer)*
+
+10. Answer any one of the following questions in about 100 120 words : 6 (a) Timely help and sympathy are a great help for those who are in grief. Gautama Buddha helped Kisa Gotami by his kind words and guidance in overcoming her grief. It is a big relief for grieving persons if support and care are extended to them. How are kindness and sympathy important in a peaceful and joyful life ? OR (b) Physical beauty is not permanent, but the beauty of character or internal beauty is permanent. Justify on the basis of your reading of F
+
+---
+
+**Q11** *(Set 2, Long Answer)*
+
+11. Answer any one of the following questions in about 100 120 words : 6 (a) highlight that change of social attitude and encouragement can help a child like Bholi to become confident and face the world bravely. On the basis of the s towards Bholi made her an introvert. What should be done to help such children to face the world bravely ? OR (b) -ambitiousness was the cause of her destruction. Justify.
+
+---
+
+**Q6** *(Set 3, MCQ)*
+
+6. Attempt any one from (A) and (B) given below : (A) Read the following extract and answer the questions that follow : 5 1=5 Don't you want to have a look a the sights, now that youre here All by myself ? Oh, I'd be much too afraid Greatly amused by the girls way of speaking, the conductor said, ut you afraid to come in the bus Nothing to be afraid about that, she answered. (i) Why did the girl not want to look at the sights ? (a) She had seen them before. (b) She disliked visiting historical sites. (c) She did not want to go with the conductor. (d) She feared going by herself. (ii) Fill in the blank with one word only. The conductor learly comes through when he hears the girl speaking. (iii) Select the option that correctly captures the application of the word as used in the extract. (a) Rashid could not sight the tiger. (b) Rashi lost his sight in the left eye. (c) The General ordered the soldiers not to shoot at sight when they saw the enemy. (d) Rashid was fascinated by the sights
+
+---
+
+**Q7** *(Set 3, MCQ)*
+
+7. Attempt any one from (A) and (B) given below : (A) Read the following extract and answer the questions that follow : 5 1=5 Belinda embraced him, Mustard licked him, No one mourned for his pirate victim. Ink and Blink in glee did gyrate Around the dragon that ate the pirate. Answer in one word only : (i) Mustard was happily licking the __________. 2/C/3 16 (ii) Belinda embraced Mustard I. out of shock II. out of helplessness III. out of happiness IV. out of gratitude Choose the correct option : (a) I and IV (b) Only III (c) II and III (d) III and IV (iii) Why were Ink and Blink happy ? (iv) Complete the analogy and choose the word from the extract that means the opposite of the given word. Day : Night : : Steady : ________ (v) (a) no one celebrated (b) no one embraced him (c) no one felt sad (d) no one paid a tribute to him OR (B) Read the following extract and answer the questions that follow : 5 1=5 Some say the world will end in fire Some say in ice. I hold with those who favour f
+
+---
+
+**Q8** *(Set 3, MCQ)*
+
+8. Answer any four of the following questions in about 40 50 words each : 4 3=12 (a) Why was the young seagull afraid to fly with his family members ? (b) Why does Anne ? (c) The people of Coorg have a tradition of courage and bravery. How has it been recognized in modern India ? (d) What happened to Mij when the box was opened ? (e) Why does the poet say Money is external in The Ball Poem ? 2/C/3 18
+
+---
+
+**Q9** *(Set 3, General)*
+
+9. Answer any two of the following questions in about 40 50 words each : 2 3=6 (a) Why is Dr. Herriot tempted to keep Tricki on as a permanent guest ? (b) Why did Ausable frame the story of the balcony ? (c) What happened when Mr. and Mrs. Hall entered the strangers room ?
+
+---
+
+**Q10** *(Set 3, Long Answer)*
+
+10. Answer any one of the following questions in about 100 120 words : 6 (a) Timely help and sympathy are a great help for those who are in grief. Gautama Buddha helped Kisa Gotami by his kind words and guidance in overcoming her grief. It is a big relief for grieving persons if support and care are extended to them. How are kindness and sympathy important in a peaceful and joyful life ? OR (b) Physical beauty is not permanent, but the beauty of character or internal beauty is permanent. Justify on the basis of your reading of F
+
+---
+
+**Q11** *(Set 3, Long Answer)*
+
+11. Answer any one of the following questions in about 100 120 words : 6 (a) r heart and you will be able to speak like highlight that change of social attitude and encouragement can help a child like Bholi to become confident and face the world bravely. On the basis of the s towards Bholi made her an introvert. What should be done to help such children to face the world bravely ? OR (b) -ambitiousness was the cause of her destruction. Justify.
+
+---
+

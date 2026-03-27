@@ -1,0 +1,29 @@
+CBSE English Class 10 – Question Extraction Statistics
+======================================================
+
+Total PDF files processed : 54
+Total questions extracted : 367
+
+Questions by Chapter
+------------------------------
+  Literature                       162
+  Writing and Grammar              127
+  Reading Comprehension             78
+
+Questions by Year
+------------------------------
+  2022                             111
+  2023                              81
+  2023 (Supplementary)              33
+  2024                              33
+  2025                              73
+  Compartment                       36
+
+Questions by Type
+------------------------------
+  MCQ                              111
+  General                          108
+  Long Answer                      105
+  Comprehension                     18
+  Gap Fill                          16
+  Short Answer                       9
